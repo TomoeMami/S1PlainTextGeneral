@@ -1,0 +1,9 @@
+** 简介
+
+本仓库用来存放S1跨越年限的高楼纯文本归档，以50楼为一份文件，不会再更新。
+
+及时更新的帖子内容参见：https://github.com/TomoeMami/S1PlainTextBackup
+
+*** 相关链接
+
+2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
