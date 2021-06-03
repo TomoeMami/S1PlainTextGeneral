@@ -4,6 +4,9 @@
 
 及时更新的帖子内容参见：https://github.com/TomoeMami/S1PlainTextBackup
 
+** 全文搜索方式：
+点击左上角搜索框，输入想查找的文本，然后选中第一项"in this repository"，即可在本Repo内进行全文搜索。
+
 *** 相关链接
 
 2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
