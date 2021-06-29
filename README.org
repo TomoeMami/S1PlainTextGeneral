@@ -5,8 +5,9 @@
 及时更新的帖子内容参见：https://github.com/TomoeMami/S1PlainTextBackup
 
 ** 全文搜索方式：
-点击左上角搜索框，输入想查找的文本，然后选中第一项"in this repository"，即可在本Repo内进行全文搜索。
+网页栏里在github后面加上1s，变成github1s.com，按下回车即可在网页版vscode中打开本repo，然后在左侧边栏点击第二个图标，即可进入搜索界面。
 
+本仓库的搜索界面：https://github1s.com/TomoeMami/S1PlainTextGeneral
 *** 相关链接
 
 2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
