@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-11-27 18:09** 
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16501#       发表于 2020-11-23 17:39
@@ -10,7 +10,7 @@
 这么看 郡道真的是拉了太多分了 草
 
 
------
+*****
 
 ####  yla  
 ##### 16502#       发表于 2020-11-23 17:51
@@ -19,7 +19,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">阿委晚上也要孤独桃铁...我本来还期待今天是昨天那个kuso galge的后续
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16503#       发表于 2020-11-23 17:57
@@ -30,7 +30,7 @@ gamers晚上7人宇宙人狼围剿孤独天皇，太卑鄙了<img src="https://s
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Suny08  
 ##### 16504#       发表于 2020-11-23 18:02
@@ -39,7 +39,7 @@ gamers晚上7人宇宙人狼围剿孤独天皇，太卑鄙了<img src="https://s
 今天晚上就是gamers挟天皇以令诸侯，希望3baka冥府这些其他的小团体好自为之
 
 
------
+*****
 
 ####  十四洲  
 ##### 16505#       发表于 2020-11-23 18:03
@@ -48,7 +48,7 @@ gamers晚上7人宇宙人狼围剿孤独天皇，太卑鄙了<img src="https://s
 最近虹3d的卫星那么多，除了星川有确定时间的吗
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16506#       发表于 2020-11-23 18:08
@@ -57,7 +57,7 @@ gamers晚上7人宇宙人狼围剿孤独天皇，太卑鄙了<img src="https://s
 船长，ptr，尊妈，葵皇的联动在葵皇频道啊，有点意外，还以为是ptr组织的。
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 16507#       发表于 2020-11-23 18:12
@@ -66,7 +66,7 @@ gamers晚上7人宇宙人狼围剿孤独天皇，太卑鄙了<img src="https://s
 hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来发推上，排面和宣传阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  free  
 ##### 16508#       发表于 2020-11-23 18:14
@@ -79,7 +79,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 [https://bbs.nga.cn/read.php?tid=24308421](https://bbs.nga.cn/read.php?tid=24308421)
 
 
------
+*****
 
 ####  NBXX  
 ##### 16509#       发表于 2020-11-23 18:17
@@ -96,7 +96,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 不过这个是跟字幕组成员说的，nga看了下评论好像都以为是对他们的道歉，有点奇妙的。 
 
 
------
+*****
 
 ####  フミさん  
 ##### 16510#       发表于 2020-11-23 18:17
@@ -145,7 +145,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 2020-11-23 18:23 上传
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 16511#       发表于 2020-11-23 18:18
@@ -154,7 +154,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 16512#       发表于 2020-11-23 18:19
@@ -163,7 +163,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 差不多得了
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16513#       发表于 2020-11-23 18:20
@@ -172,7 +172,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 牙垢反复横跳，一点也不像个ceo，你引退罢。
 
 
------
+*****
 
 ####  狸狸  
 ##### 16514#       发表于 2020-11-23 18:20
@@ -181,7 +181,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 虽然这波道歉没啥喷点 但是holo为啥总要隔个三五天来这边搞个话题
 
 
------
+*****
 
 ####  shanzihao  
 ##### 16515#       发表于 2020-11-23 18:23
@@ -190,7 +190,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 要召集字幕组来招魂了？
 
 
------
+*****
 
 ####  A2014720  
 ##### 16516#       发表于 2020-11-23 18:25
@@ -199,7 +199,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 什么jb操作
 
 
------
+*****
 
 ####  katern  
 ##### 16517#       发表于 2020-11-23 18:25
@@ -208,7 +208,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 现在道歉已经没意义了，而且私下给字幕组道歉有什么用，不就跟鞠个躬一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 16518#       发表于 2020-11-23 18:25
@@ -217,7 +217,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 傻逼表演欲怎么那么强
 
 
------
+*****
 
 ####  味增味增  
 ##### 16519#       发表于 2020-11-23 18:26
@@ -228,7 +228,7 @@ hh那首歌请了那么多人，现在专辑出了一个个都把感想拿出来
 syl，这话说的有点诀别的感觉，不过已经诀别了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16520#       发表于 2020-11-23 18:27
@@ -237,7 +237,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 这不就是标准的“日本大人”么。想要道歉多少次都给你，但是改是不会改的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16521#       发表于 2020-11-23 18:27
@@ -246,7 +246,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 装死就不能装彻底点
 
 
------
+*****
 
 ####  BonkoraKKK  
 ##### 16522#       发表于 2020-11-23 18:28
@@ -257,7 +257,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 隔三差五坐起来顶开棺材板给冲蝗楼搞团建呢？
 
 
------
+*****
 
 ####  pliee  
 ##### 16523#       发表于 2020-11-23 18:29
@@ -266,7 +266,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 生怕冲虫的没动力来点正反馈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  a37356205  
 ##### 16524#       发表于 2020-11-23 18:29
@@ -275,7 +275,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Q群限定道歉
 
 
------
+*****
 
 ####  空集  
 ##### 16525#       发表于 2020-11-23 18:31
@@ -286,7 +286,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  fromsaitama  
 ##### 16526#       发表于 2020-11-23 18:31
@@ -295,7 +295,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 真有诚意 按日本最低打工时薪给字幕组结一下工资啊 
 
 
------
+*****
 
 ####  YODOboi  
 ##### 16527#       发表于 2020-11-23 18:32
@@ -304,7 +304,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 我原谅了，你可以永远相信yagoo🤗
 
 
------
+*****
 
 ####  未熟串烧  
 ##### 16528#       发表于 2020-11-23 18:32
@@ -313,7 +313,7 @@ syl，这话说的有点诀别的感觉，不过已经诀别了
 cover已经在公共层面否定了中国市场的贡献，现在yagoo这么说也应该知道会被传出去，如果不是没想到后果的话说不定是想提桶跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  a37356205  
 ##### 16529#       发表于 2020-11-23 18:34
@@ -325,7 +325,7 @@ cover已经在公共层面否定了中国市场的贡献，现在yagoo这么说�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不承认就是，说这聊天记录是假的
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16530#       发表于 2020-11-23 18:34
@@ -338,7 +338,7 @@ cover已经在公共层面否定了中国市场的贡献，现在yagoo这么说�
 syl，拿来填充弹药库倒确实不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Junchoon  
 ##### 16531#       发表于 2020-11-23 18:34
@@ -347,7 +347,7 @@ syl，拿来填充弹药库倒确实不错<img src="https://static.saraba1st.com
 隔壁说的没错：这不是道歉，是道别......
 
 
------
+*****
 
 ####  奥尔斯蒂德  
 ##### 16532#       发表于 2020-11-23 18:35
@@ -356,7 +356,7 @@ syl，拿来填充弹药库倒确实不错<img src="https://static.saraba1st.com
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以说Q号被盗不是本人。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16533#       发表于 2020-11-23 18:36
@@ -365,7 +365,7 @@ syl，拿来填充弹药库倒确实不错<img src="https://static.saraba1st.com
 谁教你的边杂谈边唱歌的，いぬいとこ吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 16534#       发表于 2020-11-23 18:37
@@ -378,7 +378,7 @@ syl，拿来填充弹药库倒确实不错<img src="https://static.saraba1st.com
 syl 生怕各位忘记了，yagoo提醒大家继续冲吗
 
 
------
+*****
 
 ####  anicorn  
 ##### 16535#       发表于 2020-11-23 18:39
@@ -390,7 +390,7 @@ syl 生怕各位忘记了，yagoo提醒大家继续冲吗
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16536#       发表于 2020-11-23 18:40
@@ -402,7 +402,7 @@ syl 生怕各位忘记了，yagoo提醒大家继续冲吗
 [https://www.youtube.com/watch?v=w-M6VBr8zhY](https://www.youtube.com/watch?v=w-M6VBr8zhY)
 
 
------
+*****
 
 ####  sw11133  
 ##### 16537#       发表于 2020-11-23 18:40
@@ -412,7 +412,7 @@ syl 生怕各位忘记了，yagoo提醒大家继续冲吗
 我可以考虑停火7.2微秒
 
 
------
+*****
 
 ####  空集  
 ##### 16538#       发表于 2020-11-23 18:43
@@ -423,7 +423,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  yla  
 ##### 16539#       发表于 2020-11-23 18:44
@@ -432,7 +432,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该在油管sc第一位的直播间内散播这份充满希望的道别，让世界充满希望了
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16540#       发表于 2020-11-23 18:45
@@ -443,7 +443,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 过于RZ，我都觉得是⛵，牙膏和这群人上人都不靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fghc_h  
 ##### 16541#       发表于 2020-11-23 18:46
@@ -452,7 +452,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 没啥爆点啊，白皮大概率认为是假的
 
 
------
+*****
 
 ####  Aminor  
 ##### 16542#       发表于 2020-11-23 18:49
@@ -481,7 +481,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 当场都这么回了还有什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shanzihao  
 ##### 16543#       发表于 2020-11-23 18:51
@@ -494,7 +494,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 又做字幕又做pv，还全是白嫖的
 
 
------
+*****
 
 ####  秋月艾莉  
 ##### 16544#       发表于 2020-11-23 18:53
@@ -503,7 +503,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">YAGOO BEST GIRL!
 
 
------
+*****
 
 ####  Hemis  
 ##### 16545#       发表于 2020-11-23 18:54
@@ -512,7 +512,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 如果按照黑流量也是流量呆全都要这点，这Q限道歉也说得过去了
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 16546#       发表于 2020-11-23 18:55
@@ -523,7 +523,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  逃离学校  
 ##### 16547#       发表于 2020-11-23 18:55
@@ -532,7 +532,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 虽然干了很多烂事，但谁内心还不是个萌萌人，大家能原谅他吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16548#       发表于 2020-11-23 18:56
@@ -546,7 +546,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 心疼，而且平时四人麻将伊东反而是放炮多的那个（刚看组长也关键时间没发挥了）
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16549#       发表于 2020-11-23 18:57
@@ -557,7 +557,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 现在404的野生切片熟肉产出率已经远超巅峰时期的阿批了，平均播放量也不低，我觉得他们没这个魄力去吃螃蟹
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16550#       发表于 2020-11-23 18:58
@@ -571,7 +571,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 最终战看得好紧张
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16551#       发表于 2020-11-23 18:59
@@ -580,7 +580,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 五十几岁开了好几家公司的男人搞这一出也太草了，这个操作换成中文主人公砍掉30岁不就是B站的萌二么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16552#       发表于 2020-11-23 19:00
@@ -591,7 +591,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 真好
 
 
------
+*****
 
 ####  SuperCK  
 ##### 16553#       发表于 2020-11-23 19:01
@@ -602,7 +602,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 [http://tieba.baidu.com/p/7107683704](http://tieba.baidu.com/p/7107683704)
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16554#       发表于 2020-11-23 19:03
@@ -614,7 +614,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 16555#       发表于 2020-11-23 19:03
@@ -633,7 +633,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 2020-11-23 19:03 上传
 
 
------
+*****
 
 ####  caupollen  
 ##### 16556#       发表于 2020-11-23 19:05
@@ -645,7 +645,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  6二三  
 ##### 16557#       发表于 2020-11-23 19:08
@@ -654,7 +654,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 快进到垃圾鹅蛋脸，中间爷忘了，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16558#       发表于 2020-11-23 19:09
@@ -663,7 +663,7 @@ nga叙事会觉得这和冲蝗有关系，正常来看我感觉就是对字幕�
 一嗓子给👴吓懵了
 
 
------
+*****
 
 ####  北山玖公  
 ##### 16559#       发表于 2020-11-23 19:11
@@ -688,7 +688,7 @@ HH要开歌回了，还有超 重 大 发 表。
 个人猜测是live
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 16560#       发表于 2020-11-23 19:15
@@ -697,7 +697,7 @@ HH要开歌回了，还有超 重 大 发 表。
 司南三岭上开花，这也太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16561#       发表于 2020-11-23 19:17
@@ -706,7 +706,7 @@ HH要开歌回了，还有超 重 大 发 表。
 脸不好 还是别打麻将了
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16562#       发表于 2020-11-23 19:20
@@ -749,7 +749,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 [https://twitter.com/Inajun2434/status/1330834062634676224](https://twitter.com/Inajun2434/status/1330834062634676224)
 
 
------
+*****
 
 ####  Hemis  
 ##### 16563#       发表于 2020-11-23 19:22
@@ -760,7 +760,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 砍掉二十岁有个还要草的勒夫，冲去B站总部大楼“有他没我”
 
 
------
+*****
 
 ####  ygysh0505  
 ##### 16564#       发表于 2020-11-23 19:24
@@ -771,7 +771,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 16565#       发表于 2020-11-23 19:35
@@ -782,7 +782,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 岭上开花逆转优胜这真的是主角的待遇啊，司不枉你被涮了这么久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 16566#       发表于 2020-11-23 19:36
@@ -791,7 +791,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开司这岭上开花牛逼的，男主级剧情
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16567#       发表于 2020-11-23 19:38
@@ -801,7 +801,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 <img src="https://p.sda1.dev/0/655cab8c91275c966f15703082b14d1f/IMG_20201123_193707.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 16568#       发表于 2020-11-23 19:38
@@ -812,7 +812,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 感觉熄火独轮车又会动起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16569#       发表于 2020-11-23 19:40
@@ -821,7 +821,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 草 就郡道最拉胯 然后就她最精神
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16570#       发表于 2020-11-23 19:40
@@ -833,7 +833,7 @@ Syl，补充一个谁听谁聋的gamers生日凸待轰炸
 tmsk得天皇圣言，册封为2434哥伦布，奉旨探寻youtube的底线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16571#       发表于 2020-11-23 19:41
@@ -844,7 +844,7 @@ tmsk得天皇圣言，册封为2434哥伦布，奉旨探寻youtube的底线<img 
 黑暗兵法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16572#       发表于 2020-11-23 19:41
@@ -855,7 +855,7 @@ tmsk得天皇圣言，册封为2434哥伦布，奉旨探寻youtube的底线<img 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 但是你杏日常又玩不了 
 
 
------
+*****
 
 ####  caupollen  
 ##### 16573#       发表于 2020-11-23 19:43
@@ -864,7 +864,7 @@ tmsk得天皇圣言，册封为2434哥伦布，奉旨探寻youtube的底线<img 
 草，今天蝗竟然在屏幕放实时评论栏。这不效果爆炸
 
 
------
+*****
 
 ####  lovcavil  
 ##### 16574#       发表于 2020-11-23 19:44
@@ -873,7 +873,7 @@ tmsk得天皇圣言，册封为2434哥伦布，奉旨探寻youtube的底线<img 
 yagoo：给我十万独轮车，我敢打cover本社总部
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16575#       发表于 2020-11-23 19:45
@@ -882,7 +882,7 @@ yagoo：给我十万独轮车，我敢打cover本社总部
 怎么就是不是yagooQQ号后面的中之人换了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16576#       发表于 2020-11-23 19:46
@@ -891,7 +891,7 @@ yagoo：给我十万独轮车，我敢打cover本社总部
 社这凸待看来是按gamers→seeds的顺序来的啊
 
 
------
+*****
 
 ####  Abyssmarionette  
 ##### 16577#       发表于 2020-11-23 19:54
@@ -900,7 +900,7 @@ yagoo：给我十万独轮车，我敢打cover本社总部
 我懂了，yagoo夏色祭说
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16578#       发表于 2020-11-23 19:54
@@ -911,7 +911,7 @@ yagoo：给我十万独轮车，我敢打cover本社总部
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vneet  
 ##### 16579#       发表于 2020-11-23 19:55
@@ -922,7 +922,7 @@ yagoo：给我十万独轮车，我敢打cover本社总部
 说不定是，这qq是本人注册的还是照例的借用他人的？
 
 
------
+*****
 
 ####  zore  
 ##### 16580#       发表于 2020-11-23 19:58
@@ -933,7 +933,7 @@ V都能自己注册个q号
 不至于吧
 
 
------
+*****
 
 ####  空集  
 ##### 16581#       发表于 2020-11-23 20:00
@@ -947,7 +947,7 @@ V都能自己注册个q号
 太难看了 尬死我了 
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16582#       发表于 2020-11-23 20:03
@@ -956,7 +956,7 @@ V都能自己注册个q号
 KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 16583#       发表于 2020-11-23 20:04
@@ -965,7 +965,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我觉得king不如红莲华
 
 
------
+*****
 
 ####  star_platinum  
 ##### 16584#       发表于 2020-11-23 20:04
@@ -1005,7 +1005,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 2020-11-23 20:04 上传
 
 
------
+*****
 
 ####  nowaki  
 ##### 16585#       发表于 2020-11-23 20:05
@@ -1014,7 +1014,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 短呗
 
 
------
+*****
 
 ####  Vneet  
 ##### 16586#       发表于 2020-11-23 20:06
@@ -1023,7 +1023,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 喂啊噗→VUP？
 
 
------
+*****
 
 ####  forzen  
 ##### 16587#       发表于 2020-11-23 20:08
@@ -1032,7 +1032,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 八奇一下，yagoo就是被踢走了，于是顺手过来再点把火
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16588#       发表于 2020-11-23 20:09
@@ -1041,7 +1041,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 66/34什么申必操作，一般保证绝对多数不都是67/33么<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16589#       发表于 2020-11-23 20:09
@@ -1077,7 +1077,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 [https://www.youtube.com/watch?v=V3EO9vmQfkI](https://www.youtube.com/watch?v=V3EO9vmQfkI)
 
 
------
+*****
 
 ####  walfeds  
 ##### 16590#       发表于 2020-11-23 20:10
@@ -1086,7 +1086,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以田角还是想打回中国市场？
 
 
------
+*****
 
 ####  Aminor  
 ##### 16591#       发表于 2020-11-23 20:11
@@ -1105,7 +1105,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 16592#       发表于 2020-11-23 20:12
@@ -1114,7 +1114,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是国内看日v的mmr普遍感染古守病毒了
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16593#       发表于 2020-11-23 20:12
@@ -1123,7 +1123,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没人出警
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16594#       发表于 2020-11-23 20:13
@@ -1134,7 +1134,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 感觉郡郡又支棱起来了，相信的心是郡郡的魔法<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cckuku  
 ##### 16595#       发表于 2020-11-23 20:15
@@ -1143,7 +1143,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 这不是打回大陆吧，这感觉是彻底放弃彩虹cn的想法，安安心心吃叔叔的剩饭了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16596#       发表于 2020-11-23 20:15
@@ -1160,7 +1160,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 能让阿喵喵出来录歌
 
 
------
+*****
 
 ####  caupollen  
 ##### 16597#       发表于 2020-11-23 20:16
@@ -1169,7 +1169,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 被qq赛车的DJ圈了波粉吧
 
 
------
+*****
 
 ####  zore  
 ##### 16598#       发表于 2020-11-23 20:16
@@ -1178,7 +1178,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 这跟维阿有什么关联吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  稀勢のささ  
 ##### 16599#       发表于 2020-11-23 20:20
@@ -1187,7 +1187,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶师上来就刀了葵宝然后放弃反抗 这波怎么说
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 16600#       发表于 2020-11-23 20:20
@@ -1196,7 +1196,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 金憨憨开播了，公子传说任务
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16601#       发表于 2020-11-23 20:21
@@ -1205,7 +1205,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 这什么垃圾译名………………
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16602#       发表于 2020-11-23 20:21
@@ -1219,7 +1219,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 阿喵喵和路易斯声音真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16603#       发表于 2020-11-23 20:24
@@ -1243,7 +1243,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 力一   不用多说的强强 
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16604#       发表于 2020-11-23 20:25
@@ -1259,7 +1259,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 结果一听，你谁啊！
 
 
------
+*****
 
 ####  star_platinum  
 ##### 16605#       发表于 2020-11-23 20:26
@@ -1285,7 +1285,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://img.saraba1st.com/forum/202011/23/203247nnk96zs5kvoujh3r.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  稀勢のささ  
 ##### 16606#       发表于 2020-11-23 20:29
@@ -1294,7 +1294,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这几个B咋随性发言的
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16607#       发表于 2020-11-23 20:31
@@ -1303,7 +1303,7 @@ KING这破歌到底哪里好听了是个人就唱<img src="https://static.saraba
 mmr获得了武德不是挺好的
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16608#       发表于 2020-11-23 20:33
@@ -1332,7 +1332,7 @@ mmr获得了武德不是挺好的
 2020-11-23 20:33 上传
 
 
------
+*****
 
 ####  十四洲  
 ##### 16609#       发表于 2020-11-23 20:33
@@ -1344,7 +1344,7 @@ mmr获得了武德不是挺好的
 是大福杀的，他顺势保大福了，这群人除了阿葵都不会玩
 
 
------
+*****
 
 ####  caupollen  
 ##### 16610#       发表于 2020-11-23 20:37
@@ -1353,7 +1353,7 @@ mmr获得了武德不是挺好的
 出警中文？原神工商不想要了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 16611#       发表于 2020-11-23 20:47
@@ -1372,7 +1372,7 @@ mmr获得了武德不是挺好的
 作为天命之子玩家，咱证明，是真的，不过还是太草了
 
 
------
+*****
 
 ####  walfeds  
 ##### 16612#       发表于 2020-11-23 20:49
@@ -1381,7 +1381,7 @@ mmr获得了武德不是挺好的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天命之子草，可以色起来了吗
 
 
------
+*****
 
 ####  Ronso  
 ##### 16613#       发表于 2020-11-23 20:51
@@ -1390,7 +1390,7 @@ mmr获得了武德不是挺好的
 天命之子草，油腻化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pliee  
 ##### 16614#       发表于 2020-11-23 20:52
@@ -1399,7 +1399,7 @@ mmr获得了武德不是挺好的
 又不是加入游戏了，日服还是和谐服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16615#       发表于 2020-11-23 20:52
@@ -1408,7 +1408,7 @@ mmr获得了武德不是挺好的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lsp联动lsp手游还行
 
 
------
+*****
 
 ####  喜闻乐见  
 ##### 16616#       发表于 2020-11-23 20:55
@@ -1427,7 +1427,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cckuku  
 ##### 16617#       发表于 2020-11-23 20:55
@@ -1439,7 +1439,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 我只想知道热狗人你到底在玩几个手游？这就是公务员吗，我酸了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 16618#       发表于 2020-11-23 20:57
@@ -1448,7 +1448,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 葵皇同接倒二2000是不是又要发疯了，不安です
 
 
------
+*****
 
 ####  cckuku  
 ##### 16619#       发表于 2020-11-23 20:58
@@ -1460,7 +1460,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 是倒三，后面还有RRM和葉子呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16620#       发表于 2020-11-23 20:59
@@ -1474,7 +1474,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 希小姐她A上去了！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16621#       发表于 2020-11-23 20:59
@@ -1488,7 +1488,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 不对，是28jk<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是不对，这是生日，是29
 
 
------
+*****
 
 ####  cckuku  
 ##### 16622#       发表于 2020-11-23 21:01
@@ -1497,7 +1497,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 阿希笑得好开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16623#       发表于 2020-11-23 21:02
@@ -1510,7 +1510,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16624#       发表于 2020-11-23 21:03
@@ -1519,7 +1519,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你葵倒数第三不是很正常吗？垃圾一个，给gamers拖后腿的，建议走加急通道直接引退消失再也不见呢!
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16625#       发表于 2020-11-23 21:06
@@ -1534,7 +1534,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 今晚过后，我觉得椎名、笹木、葛叶、莉莉姆、葉子、阿叶要对这游戏产生梁木了，
 
 
------
+*****
 
 ####  十四洲  
 ##### 16626#       发表于 2020-11-23 21:10
@@ -1543,7 +1543,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 莉莉姆最惨好吧，又被冤枉又被首杀，毫无游戏体验
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16627#       发表于 2020-11-23 21:14
@@ -1552,7 +1552,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">经常第一个被怀疑的人到底是大家觉得这人玩得好还是被80，有定论了吗？
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 16628#       发表于 2020-11-23 21:14
@@ -1561,7 +1561,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 这gamers人狼，虹女只是黑黑的陪衬和玩物罢了，卵用就是个递纸巾的，tmsk快叛逃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 16629#       发表于 2020-11-23 21:16
@@ -1570,7 +1570,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">没事，sky喜欢ntr题材
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16630#       发表于 2020-11-23 21:20
@@ -1589,7 +1589,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 2020-11-23 21:20 上传
 
 
------
+*****
 
 ####  ひびき  
 ##### 16631#       发表于 2020-11-23 21:20
@@ -1598,7 +1598,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 27jk没死透？搞笑呢？来自: iPhone客户端
 
 
------
+*****
 
 ####  稀勢のささ  
 ##### 16632#       发表于 2020-11-23 21:21
@@ -1607,7 +1607,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为他们是来盘逻辑玩的 结果是我想多了
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16633#       发表于 2020-11-23 21:25
@@ -1618,7 +1618,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 能把夏组从坟头里挖出来吗？
 
 
------
+*****
 
 ####  ひびき  
 ##### 16634#       发表于 2020-11-23 21:26
@@ -1627,7 +1627,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 狼半仙预言的大事能否以yagoo毕业兑现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求你了来自: iPhone客户端
 
 
------
+*****
 
 ####  wety  
 ##### 16635#       发表于 2020-11-23 21:26
@@ -1638,7 +1638,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 欺上瞒下职权滥用，拿钱不做事整天水论坛，你们V区有些版主很不讲道理，今天九点直播批判为何我的新衣服失踪了
 
 
------
+*****
 
 ####  ひびき  
 ##### 16636#       发表于 2020-11-23 21:27
@@ -1647,7 +1647,7 @@ azki48这期搞的比上一次好，原来vrchat里边还有那么多强者</blo
 yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
------
+*****
 
 ####  iserz  
 ##### 16637#       发表于 2020-11-23 21:28
@@ -1658,7 +1658,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 早就不是当年相互扶持的关系了，死不死的也就那么回事。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16638#       发表于 2020-11-23 21:28
@@ -1667,7 +1667,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 那548能复活吗？
 
 
------
+*****
 
 ####  pliee  
 ##### 16639#       发表于 2020-11-23 21:29
@@ -1681,7 +1681,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 失吹奈子拿了8万做s1娘的新衣服，硬是拖了一个月<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16640#       发表于 2020-11-23 21:30
@@ -1690,7 +1690,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 现在攻守早互换了，谁喂谁的饭还不一定呢
 
 
------
+*****
 
 ####  AKili  
 ##### 16641#       发表于 2020-11-23 21:31
@@ -1699,7 +1699,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 548不都升级成大空家了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 16642#       发表于 2020-11-23 21:31
@@ -1708,7 +1708,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年杏送虹花篮虹不送杏花篮，今年直接上直播宣传，时代变了啊
 
 
------
+*****
 
 ####  proxima  
 ##### 16643#       发表于 2020-11-23 21:35
@@ -1720,7 +1720,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 你不能拿一个傻子当常例，这不合理
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16644#       发表于 2020-11-23 21:35
@@ -1729,7 +1729,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 这周木口还有给你葵喂桃铁的饭环节，
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 16645#       发表于 2020-11-23 21:35
@@ -1738,7 +1738,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 喂啊噗的田先生也太没违和感了（
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16646#       发表于 2020-11-23 21:36
@@ -1752,7 +1752,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 去看郡道复仇麻将战了（[https://www.youtube.com/watch?v=Hh54SYq9WrA](https://www.youtube.com/watch?v=Hh54SYq9WrA)）
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 16647#       发表于 2020-11-23 21:36
@@ -1761,7 +1761,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 夏芽这新衣服挺好看的啊 有清楚的邻家小妹的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16648#       发表于 2020-11-23 21:36
@@ -1770,7 +1770,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是杏仁跑去虹家蹭自家玩不到的桃铁。
 
 
------
+*****
 
 ####  空集  
 ##### 16649#       发表于 2020-11-23 21:36
@@ -1783,7 +1783,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  admentus  
 ##### 16650#       发表于 2020-11-23 21:38
@@ -1794,7 +1794,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 明明就是废物杏仁来借你葵的频道玩桃铁，连个游戏都没法播还得去蹭隔壁台联动硬播，真是不知羞耻
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16651#       发表于 2020-11-23 21:39
@@ -1810,7 +1810,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 等一个啊祭点赞转推然后夏组堂堂复活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16652#       发表于 2020-11-23 21:39
@@ -1819,7 +1819,7 @@ yagoo的告别已经引发了定型文创作大赛了，笑死我了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，你们连续4层楼劈杏不播桃铁也太乐了
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16653#       发表于 2020-11-23 21:42
@@ -1875,7 +1875,7 @@ Syl，勾勾
 [https://www.youtube.com/watch?v=p9czy1JcKkI](https://www.youtube.com/watch?v=p9czy1JcKkI)
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16654#       发表于 2020-11-23 21:42
@@ -1884,7 +1884,7 @@ Syl，勾勾
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 讲道理你葵最想舔的人应该是兔皇，但没舔到，我个人倾向于这次桃铁不是你葵组织的，
 
 
------
+*****
 
 ####  winda  
 ##### 16655#       发表于 2020-11-23 21:43
@@ -1896,7 +1896,7 @@ Syl，勾勾
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是喂饭，这是宝可桶复刻，用硬实力把彩虹最后的一点观众吸干
 
 
------
+*****
 
 ####  落雪无痕  
 ##### 16656#       发表于 2020-11-23 21:44
@@ -1905,7 +1905,7 @@ Syl，勾勾
 牙垢火上浇油的本事我是服的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16657#       发表于 2020-11-23 21:44
@@ -1921,7 +1921,7 @@ Syl，勾勾
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  ひびき  
 ##### 16658#       发表于 2020-11-23 21:44
@@ -1933,7 +1933,7 @@ Syl，勾勾
 “她不要了”来自: iPhone客户端
 
 
------
+*****
 
 ####  wety  
 ##### 16659#       发表于 2020-11-23 21:45
@@ -1945,7 +1945,7 @@ Syl，勾勾
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">2333 还有这事
 
 
------
+*****
 
 ####  admentus  
 ##### 16660#       发表于 2020-11-23 21:45
@@ -1960,7 +1960,7 @@ Syl，勾勾
 干，我也好想看兔葵啊，明明兔子也很喜欢阿葵的...兔子这性格只要注意好距离积极舔上去联动大概率没问题，阿葵争气点
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16661#       发表于 2020-11-23 21:45
@@ -1975,7 +1975,7 @@ Syl，勾勾
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 讲道理，你葵只在日程表上写了有这次联动，你葵开台这事我不知道哪里来的消息
 
 
------
+*****
 
 ####  空集  
 ##### 16662#       发表于 2020-11-23 21:46
@@ -2003,7 +2003,7 @@ Syl，勾勾
 查看全部评分
 
 
------
+*****
 
 ####  admentus  
 ##### 16663#       发表于 2020-11-23 21:47
@@ -2015,7 +2015,7 @@ Syl，勾勾
 还“硬实力”，“吸干”呢，彩虹观众来你杏看啥？厂妹学英语还是每天脑死mc？
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16664#       发表于 2020-11-23 21:52
@@ -2027,7 +2027,7 @@ Syl，勾勾
 你葵还是没勇气自己叫兔皇阿，只能默默阴湿点赞默默守护惹，
 
 
------
+*****
 
 ####  star_platinum  
 ##### 16665#       发表于 2020-11-23 21:53
@@ -2036,7 +2036,7 @@ Syl，勾勾
 话说看到谷乡这事，田角有qq号吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  forzen  
 ##### 16666#       发表于 2020-11-23 21:54
@@ -2045,7 +2045,7 @@ Syl，勾勾
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天下的杏脑控能力天下第一啊，还轮得到被吸的想看什么？
 
 
------
+*****
 
 ####  admentus  
 ##### 16667#       发表于 2020-11-23 21:54
@@ -2054,7 +2054,7 @@ Syl，勾勾
 点赞默默守护又是什么梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16668#       发表于 2020-11-23 21:56
@@ -2063,7 +2063,7 @@ Syl，勾勾
 点赞默默守护大概指葵皇点赞mrr吧。
 
 
------
+*****
 
 ####  黑之和  
 ##### 16669#       发表于 2020-11-23 21:57
@@ -2073,7 +2073,7 @@ Syl，勾勾
 低头玩个手机一局完了
 
 
------
+*****
 
 ####  MisForTunez  
 ##### 16670#       发表于 2020-11-23 22:01
@@ -2088,7 +2088,7 @@ Syl，勾勾
 舞元跟郡道暴怒/跳脸的麻将挺好看的
 
 
------
+*****
 
 ####  aptx318  
 ##### 16671#       发表于 2020-11-23 22:07
@@ -2097,7 +2097,7 @@ Syl，勾勾
 葵皇这同接有点惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16672#       发表于 2020-11-23 22:10
@@ -2106,7 +2106,7 @@ Syl，勾勾
 遥想当年兔皇刚出道日常两三千同接还没成皇的时候，葵中堂在自己推下留言互动了都会高兴地拿到直播中说；虽然时过境迁，两人联动机会很渺茫但倒也说不上绝对不可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16673#       发表于 2020-11-23 22:12
@@ -2115,7 +2115,7 @@ Syl，勾勾
 葵皇当年和白上3D同台，熊猫人当年和懒狗3D同台，golden old days。
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 16674#       发表于 2020-11-23 22:12
@@ -2130,7 +2130,7 @@ Syl，勾勾
 空闲时间在刃牙吧连载个安科小说这样
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16675#       发表于 2020-11-23 22:14
@@ -2144,7 +2144,7 @@ Syl，勾勾
 被你说的去看了下时雨妈频道，当头一个英语縛り<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16676#       发表于 2020-11-23 22:18
@@ -2176,7 +2176,7 @@ Syl，勾勾
 查看全部评分
 
 
------
+*****
 
 ####  MisForTunez  
 ##### 16677#       发表于 2020-11-23 22:18
@@ -2188,7 +2188,7 @@ Syl，勾勾
 不过是用语音识别实时翻译整活，其实还挺好看的
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16678#       发表于 2020-11-23 22:18
@@ -2199,7 +2199,7 @@ BSYL：
 懒狗杂谈2W人，喷了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16679#       发表于 2020-11-23 22:32
@@ -2221,7 +2221,7 @@ W O R L D W I D E  H O L O L I V E<img src="https://static.saraba1st.com/image
 [https://www.youtube.com/watch?v=1_4NLWciAhM](https://www.youtube.com/watch?v=1_4NLWciAhM)
 
 
------
+*****
 
 ####  sw11133  
 ##### 16680#       发表于 2020-11-23 22:36
@@ -2232,7 +2232,7 @@ W O R L D W I D E  H O L O L I V E<img src="https://static.saraba1st.com/image
 这图吓死我了
 
 
------
+*****
 
 ####  S_koname  
 ##### 16681#       发表于 2020-11-23 22:36
@@ -2241,7 +2241,7 @@ W O R L D W I D E  H O L O L I V E<img src="https://static.saraba1st.com/image
 啊这。。。。。。
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16682#       发表于 2020-11-23 22:38
@@ -2250,7 +2250,7 @@ W O R L D W I D E  H O L O L I V E<img src="https://static.saraba1st.com/image
 哈人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16683#       发表于 2020-11-23 22:38
@@ -2260,7 +2260,7 @@ W O R L D W I D E  H O L O L I V E<img src="https://static.saraba1st.com/image
 太哈人了
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16684#       发表于 2020-11-23 22:39
@@ -2270,7 +2270,7 @@ NMD眼瞎了
 这时候就得批判泥潭为啥没有折叠功能了
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 16685#       发表于 2020-11-23 22:41
@@ -2279,7 +2279,7 @@ NMD眼瞎了
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么玩意 
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 16686#       发表于 2020-11-23 22:50
@@ -2288,7 +2288,7 @@ NMD眼瞎了
 鲨皇中之人暴露，长得太政治正确了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 16687#       发表于 2020-11-23 22:52
@@ -2297,7 +2297,7 @@ NMD眼瞎了
 楼友的反应让我回忆起了当年 A岛那张黑人妹cos凌波丽的反应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  katern  
 ##### 16688#       发表于 2020-11-23 22:58
@@ -2306,7 +2306,7 @@ NMD眼瞎了
 要是黑妹就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16689#       发表于 2020-11-23 23:13
@@ -2324,7 +2324,7 @@ NMD眼瞎了
 去拿饮料了，伊东life孤独MC时间
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16690#       发表于 2020-11-23 23:15
@@ -2343,7 +2343,7 @@ NMD眼瞎了
 好耶，社加入木口，组成新的家族！
 
 
------
+*****
 
 ####  proxima  
 ##### 16691#       发表于 2020-11-23 23:19
@@ -2357,7 +2357,7 @@ NMD眼瞎了
 他那个mmd模型不是他自己公开给人ghs的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 16692#       发表于 2020-11-23 23:27
@@ -2366,7 +2366,7 @@ NMD眼瞎了
 话说鲨皇之前那张黑发眼睛nerd girl有人说是假的
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16693#       发表于 2020-11-23 23:27
@@ -2381,7 +2381,7 @@ NMD眼瞎了
 省一楼，伊东life个臭有钱的<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">，再省一楼，美妙世界2021夏出新作，如果能播的话郡道肯定会播的，我也好想看
 
 
------
+*****
 
 ####  ひびき  
 ##### 16694#       发表于 2020-11-23 23:30
@@ -2391,7 +2391,7 @@ NMD眼瞎了
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这臭女人搞什么来自: iPhone客户端
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16695#       发表于 2020-11-23 23:37
@@ -2422,7 +2422,7 @@ NMD眼瞎了
 《一直用徳政令一直负》
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16696#       发表于 2020-11-23 23:38
@@ -2444,7 +2444,7 @@ NMD眼瞎了
 don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16697#       发表于 2020-11-23 23:51
@@ -2456,7 +2456,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 不过蛮好听的，赚到了
 
 
------
+*****
 
 ####  chobing  
 ##### 16698#       发表于 2020-11-23 23:57
@@ -2478,7 +2478,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 <img src="https://img.saraba1st.com/forum/202011/23/235540afkwll4h31r71zzv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16699#       发表于 2020-11-24 00:00
@@ -2489,7 +2489,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16700#       发表于 2020-11-24 00:01
@@ -2498,7 +2498,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">用团委号来找乐子也太硬核了，专业，武德充沛
 
 
------
+*****
 
 ####  pliee  
 ##### 16701#       发表于 2020-11-24 00:05
@@ -2507,7 +2507,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 草草草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 16702#       发表于 2020-11-24 00:07
@@ -2518,7 +2518,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 —— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  katern  
 ##### 16703#       发表于 2020-11-24 00:07
@@ -2527,7 +2527,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 这也太牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ronso  
 ##### 16704#       发表于 2020-11-24 00:15
@@ -2536,7 +2536,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 这也太秀了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ronso  
 ##### 16705#       发表于 2020-11-24 00:15
@@ -2547,7 +2547,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 风怒了
 
 
------
+*****
 
 ####  S_koname  
 ##### 16706#       发表于 2020-11-24 00:17
@@ -2556,7 +2556,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 这波怕是要流行起火车梗了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  胧楼  
 ##### 16707#       发表于 2020-11-24 00:17
@@ -2565,7 +2565,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 没看懂这个团委玩的啥梗
 
 
------
+*****
 
 ####  A2014720  
 ##### 16708#       发表于 2020-11-24 00:17
@@ -2574,7 +2574,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 这事传播度比我想的还远<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  S_koname  
 ##### 16709#       发表于 2020-11-24 00:25
@@ -2586,7 +2586,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 法国通第一次火车那视频的梗
 
 
------
+*****
 
 ####  caupollen  
 ##### 16710#       发表于 2020-11-24 00:27
@@ -2595,7 +2595,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 不看v的群都有人发呢，这梗早出圈了，饭圈男孩罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 16711#       发表于 2020-11-24 00:27
@@ -2604,7 +2604,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">看了下yagoo给组长那张截图，为什么yagoo那么沙币直接和字幕组组长联系事情，中间就没员工处理的么，感觉那号是带名顶替的吧，发外网可信度也不高
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16712#       发表于 2020-11-24 00:33
@@ -2615,7 +2615,7 @@ don't think, feel.<img src="https://static.saraba1st.com/image/smiley/face2017/2
 syl，还能等到02姐姐的晚安推吗💤
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16713#       发表于 2020-11-24 00:43
@@ -2624,7 +2624,7 @@ syl，还能等到02姐姐的晚安推吗💤
 搜了一下法国火车的视频，千言万语化作一句原来真的有人对一个不认识的人这么zqsg投入的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 16714#       发表于 2020-11-24 00:52
@@ -2638,7 +2638,7 @@ syl，还能等到02姐姐的晚安推吗💤
 mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自己能力改变结果的天灾了，让人发泄下情绪都不可以的吗？讲道理我第一次看那视频也有点想笑，但出去传播甚至做鬼畜玩梗是真不基德...
 
 
------
+*****
 
 ####  耻照  
 ##### 16715#       发表于 2020-11-24 01:01
@@ -2652,7 +2652,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 所以说看管人最重要的还是远离感情
 
 
------
+*****
 
 ####  admentus  
 ##### 16716#       发表于 2020-11-24 01:08
@@ -2661,7 +2661,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 那圈内人基点德啊，既然大家多多少少都是管人舔狗，哪怕没出钱的人也付出不少时间了，看到这种事情好歹带着点对“同志”的同情心吧...
 
 
------
+*****
 
 ####  Ronso  
 ##### 16717#       发表于 2020-11-24 01:08
@@ -2670,7 +2670,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 02姐姐怎么还没发晚安推，不会在沉迷打桃铁吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  czhhws  
 ##### 16718#       发表于 2020-11-24 01:22
@@ -2688,7 +2688,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 哪位老哥最惨的不是别的，最怕以后都要长期被用作音MAD素材了。
 
 
------
+*****
 
 ####  Ronso  
 ##### 16719#       发表于 2020-11-24 01:27
@@ -2701,7 +2701,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 已经有了好像，搞鬼畜的视频
 
 
------
+*****
 
 ####  p410548971  
 ##### 16720#       发表于 2020-11-24 01:34
@@ -2712,7 +2712,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 主要因为现在天狗是众矢之的吧。很多时候v圈嘲笑某个管人观众的舔狗发言时，我都会想这种话不是随便哪个管人的b站评论都能看到一堆吗？有什么好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16721#       发表于 2020-11-24 01:36
@@ -2724,7 +2724,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 当然最优解还是不要在任何人身上投射情感。
 
 
------
+*****
 
 ####  admentus  
 ##### 16722#       发表于 2020-11-24 01:38
@@ -2740,7 +2740,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 这种情况下小圈子被更加主流的价值观审视了，不说抱紧团对抗外来者，怎么反而落井下石。
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16723#       发表于 2020-11-24 01:38
@@ -2755,7 +2755,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 一点事没有<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  飞姆托  
 ##### 16724#       发表于 2020-11-24 01:43
@@ -2766,7 +2766,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  czhhws  
 ##### 16725#       发表于 2020-11-24 01:43
@@ -2786,7 +2786,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 而且这个时候还没办法指望有人去关心或者同情他，因为首先人们可能了解不了他的情况，接着什么我比他惨多了，他这样大哭像什么的语句估计会有不少。
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16726#       发表于 2020-11-24 01:43
@@ -2798,7 +2798,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/027.png" referrerpolicy="no-referrer">小众圈子会看不起更小众的，很多因为生怕被更大众别人看不起，得找垫脚的啊。这么多突然觉醒成为新时代人的观众害怕自己还被当成旧时代的人会被看不起的情况，赶紧划清界限，然后就是一落到底。
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16727#       发表于 2020-11-24 01:45
@@ -2813,7 +2813,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 怪互联网环境毫无裨益，不如进一步提高自家粉丝纯度，BLS现场为啥有老哥能想着拍这一段传上来我暂且蒙古，也是看热闹不嫌事大
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16728#       发表于 2020-11-24 01:46
@@ -2827,7 +2827,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 你说的和我说的不是一个意思么……反正这种风险不对称的事情少做，最好不要做。退一步学楼上说的，忍回家崩溃，然后键盘杀杀陈睿谷乡crew的妈差不多得了。
 
 
------
+*****
 
 ####  czhhws  
 ##### 16729#       发表于 2020-11-24 01:46
@@ -2844,7 +2844,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正主流圈子看不起我，我还有可以看不起的群体。
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16730#       发表于 2020-11-24 01:48
@@ -2853,7 +2853,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 看来今晚真没有晚安推了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Finsty  
 ##### 16731#       发表于 2020-11-24 01:48
@@ -2866,7 +2866,7 @@ mea bls这事对粉丝和mea本人来说某种意义上也算是没法通过自�
 syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理解
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16732#       发表于 2020-11-24 01:51
@@ -2875,7 +2875,7 @@ syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理�
 只能说文化认同就是这样的东西
 
 
------
+*****
 
 ####  德里达幽灵  
 ##### 16733#       发表于 2020-11-24 01:58
@@ -2888,7 +2888,7 @@ syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理�
 就算天狗就是马保国，那么只有马保国被人打了还大言不惭的时候，你去他身上找乐子才是可以容许的；如果马保国被人打死了路边，那么这个时候你去乐他，那我觉得还是要讲点道德。
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16734#       发表于 2020-11-24 02:02
@@ -2904,7 +2904,7 @@ syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理�
 要问为什么，只能说路人缘这种东西，不能败太多次，就很简单的狼来了的故事
 
 
------
+*****
 
 ####  htgz111  
 ##### 16735#       发表于 2020-11-24 02:04
@@ -2931,7 +2931,7 @@ syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理�
 查看全部评分
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16736#       发表于 2020-11-24 02:07
@@ -2943,7 +2943,7 @@ syl 圈地自萌号召力还没蝗的一个FUNCB强，我觉得应该不难理�
 其次，我对你综出现“共情”二字的情况属实PTSD，还是谁也别要求谁了，能共共，不能共拉倒
 
 
------
+*****
 
 ####  Ronso  
 ##### 16737#       发表于 2020-11-24 02:09
@@ -2954,7 +2954,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 今天真没有晚安推了，难受<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  proxima  
 ##### 16738#       发表于 2020-11-24 02:14
@@ -2970,7 +2970,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 反正就是跟这边处于一个隔绝的状态
 
 
------
+*****
 
 ####  是谁的书画  
 ##### 16739#       发表于 2020-11-24 02:15
@@ -2983,7 +2983,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mafise  
 ##### 16740#       发表于 2020-11-24 02:21
@@ -2994,7 +2994,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  德里达幽灵  
 ##### 16741#       发表于 2020-11-24 02:21
@@ -3021,7 +3021,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 查看全部评分
 
 
------
+*****
 
 ####  Ronso  
 ##### 16742#       发表于 2020-11-24 02:23
@@ -3030,7 +3030,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 再送一盒还来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Hemis  
 ##### 16743#       发表于 2020-11-24 02:28
@@ -3041,7 +3041,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 开V的时候也先把自家V开了，成为没有弱点的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16744#       发表于 2020-11-24 02:28
@@ -3052,7 +3052,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 当然说不准游戏里带了信<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  德里达幽灵  
 ##### 16745#       发表于 2020-11-24 02:30
@@ -3065,7 +3065,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 问题是你如果在现实生活中一幅四有青年的样子，到了网上一幅哪里软就捏哪里的嘴脸，我觉得这是一种违背了同一律的”绝对道德败坏“。
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16746#       发表于 2020-11-24 02:32
@@ -3074,7 +3074,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 不行，送东西不符合巨魔风格，我只想拿到月灵姐姐宝可梦的好友码，然后打爆她（if i can <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 16747#       发表于 2020-11-24 02:34
@@ -3102,7 +3102,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 查看全部评分
 
 
------
+*****
 
 ####  Ronso  
 ##### 16748#       发表于 2020-11-24 02:55
@@ -3115,7 +3115,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 该私戳月灵姐姐让她瞅瞅了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16749#       发表于 2020-11-24 03:02
@@ -3130,7 +3130,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 在这点上你楼原来是很差，但是现在在比烂下反而比NGA（和V8原来就不用比）强很多了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  很讽刺。话又说回来了，原NGA真的就比S1更能代入别人角度，有同理心么，其实也看不出，倒不如说都关在专楼里立场相似才能同理心下，一旦不是这种情况很多时候话就不好看。就算都关在专楼里，箱推和唯粉也一定没看出能同理。
 
 
------
+*****
 
 ####  寺川愛美  
 ##### 16750#       发表于 2020-11-24 03:10
@@ -3139,7 +3139,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 看了下nga猴區，大家也很有精神啊
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16751#       发表于 2020-11-24 03:27
@@ -3148,7 +3148,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 郡道可真的算百折不挠
 
 
------
+*****
 
 ####  是谁的书画  
 ##### 16752#       发表于 2020-11-24 03:36
@@ -3177,7 +3177,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16753#       发表于 2020-11-24 03:44
@@ -3186,7 +3186,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 ？汴京汴上瘾了？
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16754#       发表于 2020-11-24 03:50
@@ -3195,7 +3195,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 主流劈二刺螈，二刺螈圈内劈管人圈，管人圈内虹人、杏人、B限单推人、天狗、crew、囚人、新时代人、etc.随机组合互劈，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 16755#       发表于 2020-11-24 03:50
@@ -3209,7 +3209,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 你楼哪有那么多集体属性，把常见id按屁股来分类，每个人的行为就很好理解了
 
 
------
+*****
 
 ####  是谁的书画  
 ##### 16756#       发表于 2020-11-24 03:54
@@ -3221,7 +3221,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 所以之前才说，至少在角色扮演上，是下功夫了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 16757#       发表于 2020-11-24 04:44
@@ -3245,7 +3245,7 @@ yysy qs  玩梗也要适度  得有共情心多基德
 syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜一筹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16758#       发表于 2020-11-24 06:32
@@ -3257,7 +3257,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 可惜前面分数溶解太多，不然也用不到半夜上头了
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16759#       发表于 2020-11-24 07:39
@@ -3268,7 +3268,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 郡gachi呢！
 
 
------
+*****
 
 ####  TRW  
 ##### 16760#       发表于 2020-11-24 08:30
@@ -3277,7 +3277,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 在s1谈同理心……哈哈哈，笑得boki了
 
 
------
+*****
 
 ####  S_koname  
 ##### 16761#       发表于 2020-11-24 08:45
@@ -3288,7 +3288,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 共情也要建立在被共情者遭遇的事要处于真的会让人同情他，可是这事对有的人是不可理解的，无法达到共情，只觉得可笑
 
 
------
+*****
 
 ####  Dank_Memes  
 ##### 16762#       发表于 2020-11-24 09:00
@@ -3297,7 +3297,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">巨魔论坛谈共情
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 16763#       发表于 2020-11-24 09:15
@@ -3306,7 +3306,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 净土坛月综不都是mmr吗，哪来的巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TRW  
 ##### 16764#       发表于 2020-11-24 09:16
@@ -3315,7 +3315,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 要净土要穿西装麻烦滚回nga，世贸被撞我只会拍手称快，呜呜呜呜呜呜，这他妈都是个啥呀！
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16765#       发表于 2020-11-24 09:19
@@ -3326,7 +3326,7 @@ syl 墙内外哪边反智程度更高不好下定论，体感来讲墙外更胜�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  北山玖公  
 ##### 16766#       发表于 2020-11-24 09:19
@@ -3337,7 +3337,7 @@ HH的BD 已经发了
 <img src="https://p.sda1.dev/0/726d0edfa42a720ca553bb70c2b5ab35/IMG_CMP_229378654.jpeg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bluebaby  
 ##### 16767#       发表于 2020-11-24 09:25
@@ -3346,7 +3346,7 @@ HH的BD 已经发了
 时代变了，现在是想巨魔去nga的时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白崎户鞠  
 ##### 16768#       发表于 2020-11-24 09:25
@@ -3357,7 +3357,7 @@ HH的BD 已经发了
 —— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  winda  
 ##### 16769#       发表于 2020-11-24 09:25
@@ -3368,7 +3368,7 @@ HH的BD 已经发了
 可怜可悲可笑，旁观审丑就ok。
 
 
------
+*****
 
 ####  U2FsdGVk  
 ##### 16770#       发表于 2020-11-24 09:25
@@ -3377,7 +3377,7 @@ HH的BD 已经发了
 要净土回nga<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16771#       发表于 2020-11-24 09:28
@@ -3386,7 +3386,7 @@ HH的BD 已经发了
 S1连下限之低都比不过NGA了？
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 16772#       发表于 2020-11-24 09:34
@@ -3395,7 +3395,7 @@ S1连下限之低都比不过NGA了？
 草，你们不能这样啊，V综怎么没有同理心了？起码我觉得V综同理心在中文圈里算高的了好不——在没有同理心方面大家都非常的共情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  katern  
 ##### 16773#       发表于 2020-11-24 09:41
@@ -3406,7 +3406,7 @@ S1连下限之低都比不过NGA了？
 行了行了，自己能不传播就已经是守住底线了，要求别人和你一样不是没事找事吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Maonpuyo  
 ##### 16774#       发表于 2020-11-24 09:43
@@ -3415,7 +3415,7 @@ S1连下限之低都比不过NGA了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">你鹅谭狗人也配谈下限，对三酱自我感动下就算了，都开始装失忆给自己立牌坊了，天狗，你好强大！
 
 
------
+*****
 
 ####  曜不能停  
 ##### 16775#       发表于 2020-11-24 09:45
@@ -3443,7 +3443,7 @@ S1连下限之低都比不过NGA了？
 查看全部评分
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16776#       发表于 2020-11-24 10:00
@@ -3452,7 +3452,7 @@ S1连下限之低都比不过NGA了？
 有京核、duckman评奇迹2内味儿了嗷
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 16777#       发表于 2020-11-24 10:00
@@ -3461,7 +3461,7 @@ S1连下限之低都比不过NGA了？
 自立自打，叹为观止
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16778#       发表于 2020-11-24 10:00
@@ -3470,7 +3470,7 @@ S1连下限之低都比不过NGA了？
 ？天狗该不会说的我吧？
 
 
------
+*****
 
 ####  YFIIII  
 ##### 16779#       发表于 2020-11-24 10:05
@@ -3481,7 +3481,7 @@ S1连下限之低都比不过NGA了？
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  fangjun96  
 ##### 16780#       发表于 2020-11-24 10:10
@@ -3492,7 +3492,7 @@ S1连下限之低都比不过NGA了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家又魔怔了syl 现在nga真不算净土，还是s1小专楼好
 
 
------
+*****
 
 ####  TiHaru  
 ##### 16781#       发表于 2020-11-24 10:23
@@ -3503,7 +3503,7 @@ S1连下限之低都比不过NGA了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我的
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 16782#       发表于 2020-11-24 10:25
@@ -3514,7 +3514,7 @@ S1连下限之低都比不过NGA了？
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16783#       发表于 2020-11-24 10:26
@@ -3523,7 +3523,7 @@ S1连下限之低都比不过NGA了？
 人不愿意给S1创收，再说了这S1有什么写注册教程的必要吗？我怀疑你在暗示NGA人看不懂中文，或者出不起五块钱。
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 16784#       发表于 2020-11-24 10:27
@@ -3535,7 +3535,7 @@ S1连下限之低都比不过NGA了？
 我们来聊聊其他的吧，话说看yagoo的操作以及架空传闻是不是到了最后cn跟en意外的在yagoo best girl 上达成了共识？
 
 
------
+*****
 
 ####  S_koname  
 ##### 16785#       发表于 2020-11-24 10:28
@@ -3544,7 +3544,7 @@ S1连下限之低都比不过NGA了？
 要汴京就拿出理由才有意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 16786#       发表于 2020-11-24 10:36
@@ -3553,7 +3553,7 @@ S1连下限之低都比不过NGA了？
 共情能力本来就是伪命题，能从逻辑角度理解对方跟从实际角度反对对方又不冲突。反正我是非常不能理解日本人那种相互理解后就世界和平的套路，只要不是什么神经病逻辑有啥不能理解的，而共情这玩意就看屁股，把自己屁股放对方位置上自然就共情.......但我为啥要把屁股放对方位置上哦？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 16787#       发表于 2020-11-24 10:42
@@ -3565,7 +3565,7 @@ S1连下限之低都比不过NGA了？
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16788#       发表于 2020-11-24 10:47
@@ -3574,7 +3574,7 @@ S1连下限之低都比不过NGA了？
 什么文，有前情提要吗？
 
 
------
+*****
 
 ####  winda  
 ##### 16789#       发表于 2020-11-24 10:48
@@ -3588,7 +3588,7 @@ S1连下限之低都比不过NGA了？
 本巨魔没有理由更没有义务去nga引流橄榄天狗，同样没有理由也没有义务去参与什么共情舆论。
 
 
------
+*****
 
 ####  harry3  
 ##### 16790#       发表于 2020-11-24 10:49
@@ -3599,7 +3599,7 @@ S1连下限之低都比不过NGA了？
 和天狗共情才有问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星の守  
 ##### 16791#       发表于 2020-11-24 10:57
@@ -3608,7 +3608,7 @@ S1连下限之低都比不过NGA了？
 一边开泥头车，一边要求人共情，就没见过这么贱的货<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16792#       发表于 2020-11-24 10:59
@@ -3618,7 +3618,7 @@ S1连下限之低都比不过NGA了？
 后者在很多时候是抛弃逻辑的，一些天狗谈共情实际上就是在要求别人抛弃自己的逻辑，这显然很可笑
 
 
------
+*****
 
 ####  白夜凛音  
 ##### 16793#       发表于 2020-11-24 11:04
@@ -3627,7 +3627,7 @@ S1连下限之低都比不过NGA了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">天狗是不是只有在挨打的时候谈共情来着
 
 
------
+*****
 
 ####  caupollen  
 ##### 16794#       发表于 2020-11-24 11:06
@@ -3639,7 +3639,7 @@ S1连下限之低都比不过NGA了？
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16795#       发表于 2020-11-24 11:06
@@ -3648,7 +3648,7 @@ S1连下限之低都比不过NGA了？
 郡道干嘛呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NBXX  
 ##### 16796#       发表于 2020-11-24 11:07
@@ -3668,7 +3668,7 @@ https://forum.gamer.com.tw/Co.php?bsn=60076&amp;sn=70260901
 http://vnews.work/archives/7957319.html
 
 
------
+*****
 
 ####  你是个好人  
 ##### 16797#       发表于 2020-11-24 11:11
@@ -3679,7 +3679,7 @@ http://vnews.work/archives/7957319.html
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  admentus  
 ##### 16798#       发表于 2020-11-24 11:13
@@ -3688,7 +3688,7 @@ http://vnews.work/archives/7957319.html
 明明现在提起数字的暴力都是19w虹棒，谁还劈的动彩虹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16799#       发表于 2020-11-24 11:16
@@ -3699,7 +3699,7 @@ http://vnews.work/archives/7957319.html
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16800#       发表于 2020-11-24 11:19
@@ -3711,7 +3711,7 @@ http://vnews.work/archives/7957319.html
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16801#       发表于 2020-11-24 11:21
@@ -3724,7 +3724,7 @@ ema播爆了（3小时以上）
 还在继续
 
 
------
+*****
 
 ####  winda  
 ##### 16802#       发表于 2020-11-24 11:26
@@ -3734,7 +3734,7 @@ ema播爆了（3小时以上）
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">那不是又自由又赚钱了。
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16803#       发表于 2020-11-24 11:26
@@ -3753,7 +3753,7 @@ ema播爆了（3小时以上）
 また野うさぎかよ
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16804#       发表于 2020-11-24 11:29
@@ -3762,7 +3762,7 @@ ema播爆了（3小时以上）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虹人还是先关注下需要众筹才能吃上饭的底边吧，                                                        
 
 
------
+*****
 
 ####  空集  
 ##### 16805#       发表于 2020-11-24 11:30
@@ -3771,7 +3771,7 @@ ema播爆了（3小时以上）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  V综很多时候模式都是2K先劈虹  然后虹反过来AOE 杏 ， 不好说2K算什么，反正我是觉得我一直打的是自卫反击战。
 
 
------
+*****
 
 ####  yanerwola  
 ##### 16806#       发表于 2020-11-24 11:32
@@ -3780,7 +3780,7 @@ ema播爆了（3小时以上）
 虫楼的激光2000给底边喊冤，有比这更好笑的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  S_koname  
 ##### 16807#       发表于 2020-11-24 11:33
@@ -3789,7 +3789,7 @@ ema播爆了（3小时以上）
 新华社那文还行吧，毕竟直播巨头在斗鱼那边，就是奥斯曼人不知道还能不能存活
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16808#       发表于 2020-11-24 11:34
@@ -3806,7 +3806,7 @@ ema播爆了（3小时以上）
 [5:36:29](https://www.youtube.com/watch?v=fOJHa0kgXo0&amp;t=20189s)
 
 
------
+*****
 
 ####  katern  
 ##### 16809#       发表于 2020-11-24 11:36
@@ -3815,7 +3815,7 @@ ema播爆了（3小时以上）
 怎么又车起来了，是熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 16810#       发表于 2020-11-24 11:36
@@ -3824,7 +3824,7 @@ ema播爆了（3小时以上）
 看你们说了几天我还是没看到到底是啥视频，我假设下是不是bls线下有个肥肥崩溃大哭被做成了鬼畜？
 
 
------
+*****
 
 ####  fastary  
 ##### 16811#       发表于 2020-11-24 11:39
@@ -3835,7 +3835,7 @@ ema播爆了（3小时以上）
 19w虹棒早就退环境了还劈不动呢，不说杏天天平A几W同接吊打虹，最近我记得的就有拿14w杏(女)新衣装劈虹(男)fw的呢w
 
 
------
+*****
 
 ####  十四洲  
 ##### 16812#       发表于 2020-11-24 11:41
@@ -3844,7 +3844,7 @@ ema播爆了（3小时以上）
 十一月快见底了，我差点忘了当初放的虹ark卫星了，应该不落地了？
 
 
------
+*****
 
 ####  Suny08  
 ##### 16813#       发表于 2020-11-24 11:41
@@ -3853,7 +3853,7 @@ ema播爆了（3小时以上）
 看虹楼火畜repo说的是后天是马车杯的报名deadline，应该还是会在今年年底办比赛
 
 
------
+*****
 
 ####  你是个好人  
 ##### 16814#       发表于 2020-11-24 11:44
@@ -3864,7 +3864,7 @@ ema播爆了（3小时以上）
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16815#       发表于 2020-11-24 11:47
@@ -3875,7 +3875,7 @@ ema播爆了（3小时以上）
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16816#       发表于 2020-11-24 11:47
@@ -3889,7 +3889,7 @@ ema播爆了（3小时以上）
 又一个被apex夺走歌力的女人<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TiHaru  
 ##### 16817#       发表于 2020-11-24 11:50
@@ -3898,7 +3898,7 @@ ema播爆了（3小时以上）
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发言没过脑子非常抱歉
 
 
------
+*****
 
 ####  kangkangsama  
 ##### 16818#       发表于 2020-11-24 11:52
@@ -3914,7 +3914,7 @@ ema播爆了（3小时以上）
 可爱还不会乱叫
 
 
------
+*****
 
 ####  winda  
 ##### 16819#       发表于 2020-11-24 11:58
@@ -3925,7 +3925,7 @@ V综很多时候模式都是2K先劈虹  然后虹反过来AOE 杏 ， 不好�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看上面，“自卫反击”
 
 
------
+*****
 
 ####  admentus  
 ##### 16820#       发表于 2020-11-24 12:00
@@ -3943,7 +3943,7 @@ V综很多时候模式都是2K先劈虹  然后虹反过来AOE 杏 ， 不好�
 plus作为一个杏奴，羡慕彩虹19w的奇迹可是真的
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16821#       发表于 2020-11-24 12:01
@@ -3957,7 +3957,7 @@ ema真是模范主播，还会逐个谢sc<img src="https://static.saraba1st.com/
 放个gif就是那谁了
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16822#       发表于 2020-11-24 12:05
@@ -3972,7 +3972,7 @@ ema真是模范主播，还会逐个谢sc<img src="https://static.saraba1st.com/
 所以2k不用劈葵黄男友和找糊皇买订阅了，买订阅都买不过不更丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 16823#       发表于 2020-11-24 12:07
@@ -3985,7 +3985,7 @@ ema真是模范主播，还会逐个谢sc<img src="https://static.saraba1st.com/
 广电这个不就是老调重提，除了课金上限，其他的都早就在实行的了吧
 
 
------
+*****
 
 ####  winda  
 ##### 16824#       发表于 2020-11-24 12:12
@@ -3998,7 +3998,7 @@ plus作为一个杏奴 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，这帆船的一贯性令人佩服
 
 
------
+*****
 
 ####  fghc_h  
 ##### 16825#       发表于 2020-11-24 12:17
@@ -4007,7 +4007,7 @@ plus作为一个杏奴 ...</blockquote>
 能给阿希买点同接嘛，太可怜了
 
 
------
+*****
 
 ####  admentus  
 ##### 16826#       发表于 2020-11-24 12:18
@@ -4018,7 +4018,7 @@ plus作为一个杏奴 ...</blockquote>
 说真的啊，我是真想看杏哪一天能搞出个有意思的多人企划拿次高同接，可惜现实只有mc运动会这种无聊玩意儿...所以确实羡慕彩虹有这能力创造奇迹，不是反串
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 16827#       发表于 2020-11-24 12:18
@@ -4027,7 +4027,7 @@ plus作为一个杏奴 ...</blockquote>
 看阿希急不好吗
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16828#       发表于 2020-11-24 12:20
@@ -4039,7 +4039,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mafise  
 ##### 16829#       发表于 2020-11-24 12:22
@@ -4050,7 +4050,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  AKili  
 ##### 16830#       发表于 2020-11-24 12:24
@@ -4059,7 +4059,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 杏真想拿高同接早点安排鲨皇3d就完事了，还隔着指望有趣的多人企划能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -rm7-  
 ##### 16831#       发表于 2020-11-24 12:25
@@ -4071,7 +4071,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 我不要8910月的佐藤希<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16832#       发表于 2020-11-24 12:27
@@ -4082,7 +4082,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  admentus  
 ##### 16833#       发表于 2020-11-24 12:31
@@ -4111,7 +4111,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 查看全部评分
 
 
------
+*****
 
 ####  TRW  
 ##### 16834#       发表于 2020-11-24 12:33
@@ -4120,7 +4120,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 404怎么也得是白皮的404，虹人对19w的寿命还是有点b数的。什么时候鲨皇和杏jp分社之间再把隔墙打通，那就无敌了。
 
 
------
+*****
 
 ####  AKili  
 ##### 16835#       发表于 2020-11-24 12:34
@@ -4129,7 +4129,7 @@ admentus老哥怎么现在那么魔怔了，我记得你六七月份的时候还
 话说有兔子新衣服消息了吗
 
 
------
+*****
 
 ####  caupollen  
 ##### 16836#       发表于 2020-11-24 12:34
@@ -4144,7 +4144,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  htgz111  
 ##### 16837#       发表于 2020-11-24 12:34
@@ -4157,7 +4157,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 卍组破产到白上另立hologamers打算和自己人玩就已经证明了联动上杏烂透了，结果后来gamers又加了比白上资历高不少的宫助，白上连自己的小团体都指挥不动了，也就别指望能有什么优质大联动了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 16838#       发表于 2020-11-24 12:36
@@ -4166,7 +4166,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 温暖互助彩虹社，冷血无情木口人
 
 
------
+*****
 
 ####  aele  
 ##### 16839#       发表于 2020-11-24 12:39
@@ -4175,7 +4175,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 是鲨皇把野兔子逼疯的（
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 16840#       发表于 2020-11-24 12:41
@@ -4184,7 +4184,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 别整啥全社大联动了，三期联动再多来点<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 16841#       发表于 2020-11-24 12:41
@@ -4195,7 +4195,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  asdhai  
 ##### 16842#       发表于 2020-11-24 12:41
@@ -4204,7 +4204,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 鲨皇刚出来的时候这位野兔子的发疯场景我现在还历历在目。
 
 
------
+*****
 
 ####  stedckk  
 ##### 16843#       发表于 2020-11-24 12:44
@@ -4213,7 +4213,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起来了，那场景真有够好笑的。
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16844#       发表于 2020-11-24 12:45
@@ -4225,7 +4225,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 16845#       发表于 2020-11-24 12:45
@@ -4234,7 +4234,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 从我接触v圈这6个月看，这行业真属于互联网么？从16年爱酱到18年彩虹的主播化，这都2年了还是这么拉垮，专业化基本为0的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 16846#       发表于 2020-11-24 12:46
@@ -4245,7 +4245,7 @@ mea有白皮盘吗，还是下面都是香蕉反穿啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">关键词怎么是高同接，这么斗虫的么
 
 
------
+*****
 
 ####  Finsty  
 ##### 16847#       发表于 2020-11-24 12:46
@@ -4259,7 +4259,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16848#       发表于 2020-11-24 12:46
@@ -4268,7 +4268,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专业化的前提差不多就是剥夺中之人话语权，游戏部和绊爱干过，然后失败了。也许以后会有成功的案例吧。
 
 
------
+*****
 
 ####  nowaki  
 ##### 16849#       发表于 2020-11-24 12:47
@@ -4277,7 +4277,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 难道国内主播就专业化高么，当年的斗鱼十大凉了多少个了。
 
 
------
+*****
 
 ####  admentus  
 ##### 16850#       发表于 2020-11-24 12:49
@@ -4289,7 +4289,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 别提了，en里最开始奶的是死神火鸡，被鲨皇侦探这俩不怎么看好的彻底橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  proxima  
 ##### 16851#       发表于 2020-11-24 12:49
@@ -4303,7 +4303,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 我想了一下，money之歌就挺不错的，Kaguramea moments搞起来?
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 16852#       发表于 2020-11-24 12:49
@@ -4315,7 +4315,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 你什么时候产生了互联网就能专业化的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16853#       发表于 2020-11-24 12:49
@@ -4328,7 +4328,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  admentus  
 ##### 16854#       发表于 2020-11-24 12:51
@@ -4342,7 +4342,7 @@ syl 自己油管玩什么脏的想必白皮mmr也是看不见就是
 你杏最爱的重大发表新衣服走流程的3d披露都是很取巧“德不配位”的
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16855#       发表于 2020-11-24 12:54
@@ -4358,7 +4358,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 骑士范儿不能丢 
 
 
------
+*****
 
 ####  yla  
 ##### 16856#       发表于 2020-11-24 12:59
@@ -4369,7 +4369,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 本来就是只要动一下手指就能摧毁一个项目的状态，再叠上自主性极强的主播和新兴行业buff，不就是个随时会炸的炸弹么
 
 
------
+*****
 
 ####  shanzihao  
 ##### 16857#       发表于 2020-11-24 12:59
@@ -4378,7 +4378,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 确定是白皮么？这是白皮在享受牛头人cn的感受？原来白皮最爱的是cn观众
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 16858#       发表于 2020-11-24 13:01
@@ -4389,7 +4389,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 更何况现在无论哪家新衣装基本上都取决于liver本人，为什么不算liver数字的一部分？
 
 
------
+*****
 
 ####  TRW  
 ##### 16859#       发表于 2020-11-24 13:02
@@ -4403,7 +4403,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 你一说996我又想车田角了，杏的新年是过年联动新衣接力等企划话题度拉满，虹的新年……录个电视，放假了。我看他是对流量操作一窍不通，加班费也好经纪人也好根本没用对地方。
 
 
------
+*****
 
 ####  caupollen  
 ##### 16860#       发表于 2020-11-24 13:09
@@ -4418,7 +4418,7 @@ mea有白皮盘吗，还是下面都 ...</blockquote>
 syl 还被转到holo版 也有500回复，跟holo发官方公告一样的回复量
 
 
------
+*****
 
 ####  walfeds  
 ##### 16861#       发表于 2020-11-24 13:09
@@ -4433,7 +4433,7 @@ syl 还被转到holo版 也有500回复，跟holo发官方公告一样的回复�
 也有几家想自己做渠道跳开油管的，然而这圈子体量还支持不了这玩法，所以基本死的死苟的苟
 
 
------
+*****
 
 ####  好德我基  
 ##### 16862#       发表于 2020-11-24 13:12
@@ -4443,7 +4443,7 @@ syl 还被转到holo版 也有500回复，跟holo发官方公告一样的回复�
 至于白上管不动宫皇那已经是今年的事了，可以翻翻宫皇刚出道时v综的评价，突出一个虚无。
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 16863#       发表于 2020-11-24 13:13
@@ -4452,7 +4452,7 @@ syl 还被转到holo版 也有500回复，跟holo发官方公告一样的回复�
 reddit 流量密码?
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 16864#       发表于 2020-11-24 13:19
@@ -4465,7 +4465,7 @@ reddit 流量密码?
 syl我巴不得咩咩多学学英语让鬼佬多多打钱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Kanchiki  
 ##### 16865#       发表于 2020-11-24 13:22
@@ -4474,7 +4474,7 @@ syl我巴不得咩咩多学学英语让鬼佬多多打钱<img src="https://stati
 虹不了解，杏搞的还真不是主播那套…演唱会，fan撒，虚拟握手券，谷子，推本位全肯定，独角兽养殖，最喜欢观众了！完全是偶像营业
 
 
------
+*****
 
 ####  NBXX  
 ##### 16866#       发表于 2020-11-24 13:24
@@ -4504,7 +4504,7 @@ syl我巴不得咩咩多学学英语让鬼佬多多打钱<img src="https://stati
 查看全部评分
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 16867#       发表于 2020-11-24 13:24
@@ -4513,7 +4513,7 @@ syl我巴不得咩咩多学学英语让鬼佬多多打钱<img src="https://stati
 和猫一起播apex的ema很好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mmbk  
 ##### 16868#       发表于 2020-11-24 13:26
@@ -4522,7 +4522,7 @@ syl我巴不得咩咩多学学英语让鬼佬多多打钱<img src="https://stati
 reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一样fh还挺欢乐的
 
 
------
+*****
 
 ####  好德我基  
 ##### 16869#       发表于 2020-11-24 13:26
@@ -4532,7 +4532,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 这还不互联网那啥是互联网啊。
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16870#       发表于 2020-11-24 13:29
@@ -4550,7 +4550,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 鬼佬就是抠逼，或者说除了日本neet全宇宙都是抠逼
 
 
------
+*****
 
 ####  harry3  
 ##### 16871#       发表于 2020-11-24 13:37
@@ -4566,7 +4566,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 害怕中文那会儿我去4chan看了眼提三老师的应该90%都是4v
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16872#       发表于 2020-11-24 13:39
@@ -4578,7 +4578,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 宫皇开始retro game以后楼里就有正面风评了，鬼佬开始大规模出没在宫皇直播间也是那会儿（八过主要是宫皇直播时间阴间了点）
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16873#       发表于 2020-11-24 13:41
@@ -4587,7 +4587,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 谁给翻译翻译月灵姐这条推甚么意思  看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 16874#       发表于 2020-11-24 13:41
@@ -4599,7 +4599,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 你可别，当初人少搞个24小时企划还行，现在这100多号人你搞接力你是要观众猝死嘛？
 
 
------
+*****
 
 ####  fghc_h  
 ##### 16875#       发表于 2020-11-24 13:44
@@ -4608,7 +4608,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 这么点，保守估计1w5的会员是这么点吗，你能不能赚人百分之一啊，呜呜
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 16876#       发表于 2020-11-24 13:48
@@ -4617,7 +4617,7 @@ reddit老fh不是常识吗。看着这群自由壬和他们最痛恨的主子一
 咩咩能有1000会员吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  harry3  
 ##### 16877#       发表于 2020-11-24 13:49
@@ -4637,7 +4637,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 太对了鸽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16878#       发表于 2020-11-24 13:51
@@ -4652,7 +4652,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 16879#       发表于 2020-11-24 13:52
@@ -4666,7 +4666,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 应该就是字面意思吧？看不出可以阅读理解的点
 
 
------
+*****
 
 ####  yla  
 ##### 16880#       发表于 2020-11-24 13:56
@@ -4675,7 +4675,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 404会员看下自定义表情数量就能知道上下限的吧
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 16881#       发表于 2020-11-24 13:57
@@ -4684,7 +4684,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 咩可没有皇叔的高英语力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说白皮确实是大市场，但她真的太懒了
 
 
------
+*****
 
 ####  Mafise  
 ##### 16882#       发表于 2020-11-24 13:57
@@ -4695,7 +4695,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16883#       发表于 2020-11-24 14:00
@@ -4708,7 +4708,7 @@ Mea needs to gtfo and save her sanity, I’m still fully confident on her growth
 syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 
 
------
+*****
 
 ####  Ronso  
 ##### 16884#       发表于 2020-11-24 14:02
@@ -4717,7 +4717,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 16885#       发表于 2020-11-24 14:03
@@ -4733,7 +4733,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 那个红迪的转广电新规，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回复内容《cover真有先见之明》《心疼mea快和中国切断，不要再受中国人八零了》《mea非常自由的，面对这么无理规矩她会受不了自己离开cn的》
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16886#       发表于 2020-11-24 14:05
@@ -4744,7 +4744,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  TiHaru  
 ##### 16887#       发表于 2020-11-24 14:05
@@ -4762,7 +4762,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 “他们组成了她收入的80%”
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 16888#       发表于 2020-11-24 14:06
@@ -4771,7 +4771,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 白皮这么心疼咩咩多打点钱好不好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 16889#       发表于 2020-11-24 14:08
@@ -4783,7 +4783,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 能看下限，但很多人表情数量跟实际会员数量差太多了，而且懒得新增表情...
 
 
------
+*****
 
 ####  未来起航  
 ##### 16890#       发表于 2020-11-24 14:17
@@ -4794,7 +4794,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16891#       发表于 2020-11-24 14:27
@@ -4809,7 +4809,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 草  主要是我不知道补水液居然是可以喝的东西<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  敖轩  
 ##### 16892#       发表于 2020-11-24 14:32
@@ -4836,7 +4836,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 查看全部评分
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 16893#       发表于 2020-11-24 14:35
@@ -4847,7 +4847,7 @@ syl，U1S1，刚刷完牙吃喝那味儿是真滴怪
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  敖轩  
 ##### 16894#       发表于 2020-11-24 14:48
@@ -4862,7 +4862,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  空集  
 ##### 16895#       发表于 2020-11-24 14:50
@@ -4873,7 +4873,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 16896#       发表于 2020-11-24 14:51
@@ -4888,7 +4888,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是对【这么点】有什么误会。。。。。
 
 
------
+*****
 
 ####  好德我基  
 ##### 16897#       发表于 2020-11-24 14:59
@@ -4901,7 +4901,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 确实，上一个04年的正宗阳澄湖凛fam都被这些过水大闸蟹喷跑了，该反思了！<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  †バンシー†  
 ##### 16898#       发表于 2020-11-24 15:01
@@ -4914,7 +4914,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 不一样的地方是这个蓝海直接在油管就可以经营开发 不用被陈睿抽一笔还管这管那
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16899#       发表于 2020-11-24 15:01
@@ -4927,7 +4927,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 鲨皇十一月单算sc也才30k usd，tskk过去七天就46k了，而且gura还是白皮中的绝对头部（虽然sc没多那么多），日本那边这么能打的还有一个润润呢
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16900#       发表于 2020-11-24 15:01
@@ -4936,7 +4936,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 好，NGA快来一个鉴婆罗门真伪指南，打倒S1伪婆罗门组织V综
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 16901#       发表于 2020-11-24 15:02
@@ -4947,7 +4947,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 想看市场潜力
 
 
------
+*****
 
 ####  yla  
 ##### 16902#       发表于 2020-11-24 15:06
@@ -4956,7 +4956,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">蜥蜴那是pua技法纯熟，看会限repo就知道她要钱手段高超，还有无言sc引导走向。这些肯定是鲨皇不能比的
 
 
------
+*****
 
 ####  Hemis  
 ##### 16903#       发表于 2020-11-24 15:08
@@ -4967,7 +4967,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 掏批站账号UID吗，快进到批站去二次元化
 
 
------
+*****
 
 ####  wh960916  
 ##### 16904#       发表于 2020-11-24 15:09
@@ -4976,7 +4976,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 拿注册日期说事可太lowb了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 16905#       发表于 2020-11-24 15:10
@@ -4985,7 +4985,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那我这注册日期，怎么说也是6~7两的阳澄湖大闸蟹了吧
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16906#       发表于 2020-11-24 15:10
@@ -4994,7 +4994,7 @@ There was another vtuber that got popular in Bilibili due to the hololive void a
 nga人注册时间都早，根本原因是nga建政一般不会永封<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 16907#       发表于 2020-11-24 15:11
@@ -5003,7 +5003,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封<img src="h
 鲨皇不养gachi不念sc，做6休1，歌回谨慎到不开sc而且删档，sc能高才怪呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  asdhai  
 ##### 16908#       发表于 2020-11-24 15:12
@@ -5012,7 +5012,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封<img src="h
 注册日期排资论辈？狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16909#       发表于 2020-11-24 15:12
@@ -5023,7 +5023,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 别说了，狗力士，哭哭狗.jpg
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 16910#       发表于 2020-11-24 15:13
@@ -5032,7 +5032,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en但看sc鲨鱼确实不是最强，最强的是死神，然后火鸡，不过加上会员收益的话，那还是鲨皇最强。
 
 
------
+*****
 
 ####  东英零  
 ##### 16911#       发表于 2020-11-24 15:15
@@ -5041,7 +5041,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 洗脚大闸蟹主动点离开此楼，以我注册日期往前算才是本地大闸蟹嗷
 
 
------
+*****
 
 ####  大江户战士  
 ##### 16912#       发表于 2020-11-24 15:16
@@ -5056,7 +5056,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16913#       发表于 2020-11-24 15:16
@@ -5089,7 +5089,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 查看全部评分
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16914#       发表于 2020-11-24 15:16
@@ -5100,7 +5100,7 @@ nga人注册时间都早，根本原因是nga建政一般不会永封</blockquot
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16915#       发表于 2020-11-24 15:17
@@ -5115,7 +5115,7 @@ en但看sc鲨鱼确实不是最强，最强的是死神，然后火鸡，不过�
 en真的就是同接和订阅能打啊，这没啥不好的啊
 
 
------
+*****
 
 ####  触手姬  
 ##### 16916#       发表于 2020-11-24 15:17
@@ -5124,7 +5124,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">洋人市场的确蛮大的，但前提你得会英语
 
 
------
+*****
 
 ####  admentus  
 ##### 16917#       发表于 2020-11-24 15:18
@@ -5133,7 +5133,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊
 加上会员的话侦探也是10月会员发言第二，白皮的消费习惯跟东亚管人观众确实不太一样
 
 
------
+*****
 
 ####  htgz111  
 ##### 16918#       发表于 2020-11-24 15:18
@@ -5142,7 +5142,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊
 那本蟹已经是帝王蟹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 16919#       发表于 2020-11-24 15:23
@@ -5151,7 +5151,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊
 鲨皇不养噶吃，兔宝现在也很久才读一次sc，每次看润姨雪花她们养噶吃我都好羡慕。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YODOboi  
 ##### 16920#       发表于 2020-11-24 15:25
@@ -5165,7 +5165,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊
 链来，我想看看怎么评我最爱的老阿姨的🤗
 
 
------
+*****
 
 ####  yla  
 ##### 16921#       发表于 2020-11-24 15:28
@@ -5189,7 +5189,7 @@ syl，我想了想，也许你是认为那些sc都是樱花人的，鲨皇没樱
 但是我的观点主要在蜥蜴主动利用了技巧去要钱了。
 
 
------
+*****
 
 ####  好德我基  
 ##### 16922#       发表于 2020-11-24 15:29
@@ -5198,7 +5198,7 @@ syl，我想了想，也许你是认为那些sc都是樱花人的，鲨皇没樱
 en2期的话，希望不要动用ame的通讯录。
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 16923#       发表于 2020-11-24 15:34
@@ -5207,7 +5207,7 @@ en2期的话，希望不要动用ame的通讯录。
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">注册时间？
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16924#       发表于 2020-11-24 15:34
@@ -5218,7 +5218,7 @@ en2期的话，希望不要动用ame的通讯录。
 大闸蟹又不看年份
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16925#       发表于 2020-11-24 15:35
@@ -5240,7 +5240,7 @@ en2期的话，希望不要动用ame的通讯录。
 你就类比一下国内贪污公款给女主播打成百上千万的，这你肯定觉得他们不正常啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法少女大头  
 ##### 16926#       发表于 2020-11-24 15:41
@@ -5249,7 +5249,7 @@ en2期的话，希望不要动用ame的通讯录。
 增加点阴湿浓度。 以前不管是oto还是弟姐看得都少，现在这彼此的浓度有点太高了吧，一边已经有点指示厨的感觉了，隔三差五指导粉丝应该干啥不应该干啥，一边也在享受被大姐姐（或者说阿姨？）指导的感觉。之前看到那几篇小作文还是觉得说的不错的，“互为明镜”是个比较理想的相处状态，但是实际上的观感只是在增加浓度。
 
 
------
+*****
 
 ####  絵生voice  
 ##### 16927#       发表于 2020-11-24 15:44
@@ -5259,7 +5259,7 @@ en2期的话，希望不要动用ame的通讯录。
 https://youtu.be/Vx7ggrHV9rc
 
 
------
+*****
 
 ####  yla  
 ##### 16928#       发表于 2020-11-24 15:46
@@ -5274,7 +5274,7 @@ https://youtu.be/Vx7ggrHV9rc
 en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16929#       发表于 2020-11-24 15:48
@@ -5292,7 +5292,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 老外不会打钱的也还是不会打钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AKili  
 ##### 16930#       发表于 2020-11-24 15:48
@@ -5318,7 +5318,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 查看全部评分
 
 
------
+*****
 
 ####  AKili  
 ##### 16931#       发表于 2020-11-24 15:51
@@ -5344,7 +5344,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 查看全部评分
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16932#       发表于 2020-11-24 15:51
@@ -5358,7 +5358,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 那我是20年的拉菲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YODOboi  
 ##### 16933#       发表于 2020-11-24 15:54
@@ -5369,7 +5369,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 几下就找到了，reddit流量比我想象中小不少，前年看的时候还是个死板
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 16934#       发表于 2020-11-24 15:57
@@ -5380,7 +5380,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Kanchiki  
 ##### 16935#       发表于 2020-11-24 15:58
@@ -5399,7 +5399,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 要是真因为这个新规中国主播圈彻底萎了我是不太相信的
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16936#       发表于 2020-11-24 15:58
@@ -5411,7 +5411,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 真就老yhm了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  胧楼  
 ##### 16937#       发表于 2020-11-24 15:59
@@ -5426,7 +5426,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 白皮需要思考这些么cn两个字就够了
 
 
------
+*****
 
 ####  smy20011  
 ##### 16938#       发表于 2020-11-24 16:03
@@ -5438,7 +5438,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 毕竟前世喝醉了也能唱
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16939#       发表于 2020-11-24 16:04
@@ -5449,7 +5449,7 @@ en的sc盘子大不大终究还是要等个有缘人来收割一波才知道了<
 EN最终总SC看起来不会有jp支部多……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 16940#       发表于 2020-11-24 16:12
@@ -5458,7 +5458,7 @@ EN最终总SC看起来不会有jp支部多……<img src="https://static.saraba1
 不是说所谓白皮其实是东南亚黑皮吗，东南亚钱真的多吗
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 16941#       发表于 2020-11-24 16:13
@@ -5467,7 +5467,7 @@ EN最终总SC看起来不会有jp支部多……<img src="https://static.saraba1
 东南亚猴子会在半夜看直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  smy20011  
 ##### 16942#       发表于 2020-11-24 16:13
@@ -5476,7 +5476,7 @@ EN最终总SC看起来不会有jp支部多……<img src="https://static.saraba1
 gura明显是往视频+会员的方向走，视频播放量都是80万-100万的，广告本身的量就很大。
 
 
------
+*****
 
 ####  kilty  
 ##### 16943#       发表于 2020-11-24 16:15
@@ -5485,7 +5485,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 一个想法，10年以前注册的大部分应该已经30+成家了吧，你们家人怎么看待自己看vtb这件事呢
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 16944#       发表于 2020-11-24 16:18
@@ -5496,7 +5496,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 少打钱
 
 
------
+*****
 
 ####  林照人  
 ##### 16945#       发表于 2020-11-24 16:24
@@ -5505,7 +5505,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 单身万岁
 
 
------
+*****
 
 ####  fghc_h  
 ##### 16946#       发表于 2020-11-24 16:24
@@ -5514,7 +5514,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 尾巴哥是对鲨皇有什么梁木吗，来只老年大闸蟹细说
 
 
------
+*****
 
 ####  caupollen  
 ##### 16947#       发表于 2020-11-24 16:27
@@ -5528,7 +5528,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16948#       发表于 2020-11-24 16:27
@@ -5540,7 +5540,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 汏浴蟹来回答一下，好像说尾宝没啥梁木，还准备拿gura当新推盾来着
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 16949#       发表于 2020-11-24 16:30
@@ -5549,7 +5549,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 话说php的红sc相当于多少usd？我记得hkd和ntd都是50usd左右，php应该会进一步缩水？
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16950#       发表于 2020-11-24 16:30
@@ -5558,7 +5558,7 @@ gura明显是往视频+会员的方向走，视频播放量都是80万-100万的
 EN收不上粮无所谓，反正有JP厂妹传菜养就行，薅国内羊毛养白皮这是东亚企业传统艺能了。
 
 
------
+*****
 
 ####  asdhai  
 ##### 16951#       发表于 2020-11-24 16:30
@@ -5582,7 +5582,7 @@ EN收不上粮无所谓，反正有JP厂妹传菜养就行，薅国内羊毛养�
 查看全部评分
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16952#       发表于 2020-11-24 16:31
@@ -5594,7 +5594,7 @@ EN收不上粮无所谓，反正有JP厂妹传菜养就行，薅国内羊毛养�
 不成家就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16953#       发表于 2020-11-24 16:32
@@ -5606,7 +5606,7 @@ EN收不上粮无所谓，反正有JP厂妹传菜养就行，薅国内羊毛养�
 en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Rafale  
 ##### 16954#       发表于 2020-11-24 16:32
@@ -5619,7 +5619,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16955#       发表于 2020-11-24 16:35
@@ -5634,7 +5634,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 不合群的人出现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 16956#       发表于 2020-11-24 16:37
@@ -5659,7 +5659,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 查看全部评分
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 16957#       发表于 2020-11-24 16:42
@@ -5669,7 +5669,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是适合她
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 16958#       发表于 2020-11-24 16:44
@@ -5678,7 +5678,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 原来没有女朋友的我才是不合群的那一个<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Miduki  
 ##### 16959#       发表于 2020-11-24 16:45
@@ -5687,7 +5687,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 看虚拟母人总比黄赌毒强嘛，还可以白嫖<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 16960#       发表于 2020-11-24 16:50
@@ -5696,7 +5696,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 不会真有人瞒着自己是二次元找女朋友的吧？
 
 
------
+*****
 
 ####  walfeds  
 ##### 16961#       发表于 2020-11-24 16:51
@@ -5705,7 +5705,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯正二次元不会有女朋友
 
 
------
+*****
 
 ####  Oshino57  
 ##### 16962#       发表于 2020-11-24 16:56
@@ -5717,7 +5717,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 虽然但是，几个星期看下来，她估计也没想到 nga 这批新来的观众能这么奇葩啊（
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16963#       发表于 2020-11-24 16:57
@@ -5726,7 +5726,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 白上女士后来有用过那个卫衣皮吗？
 
 
------
+*****
 
 ####  aele  
 ##### 16964#       发表于 2020-11-24 17:00
@@ -5737,7 +5737,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 用过啊，你是不是在小看白姨<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 16965#       发表于 2020-11-24 17:02
@@ -5746,7 +5746,7 @@ en薅订阅同接，支社薅sc，大家都有光明的未来<img src="https://s
 白姨巨魔浓度可不是吹的
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 16966#       发表于 2020-11-24 17:05
@@ -5761,7 +5761,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得考虑鲨鱼坚持做6休1.。。。。
 
 
------
+*****
 
 ####  katern  
 ##### 16967#       发表于 2020-11-24 17:10
@@ -5770,7 +5770,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 鲨皇这就是强者的余裕，正常作息平A随便吊打分社<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16968#       发表于 2020-11-24 17:16
@@ -5779,7 +5779,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 哈哈哈，那确实硬核和巨魔星街庆祝佐贺事变500万播放哪个更巨魔呢
 
 
------
+*****
 
 ####  admentus  
 ##### 16969#       发表于 2020-11-24 17:18
@@ -5824,7 +5824,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 [https://twitter.com/0_shusi_/status/1331153247889833985](https://twitter.com/0_shusi_/status/1331153247889833985)
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16970#       发表于 2020-11-24 17:18
@@ -5835,7 +5835,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 不过阿星现在吸了一大堆鬼佬路人粉，以后继续混混数据也不会太难看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 16971#       发表于 2020-11-24 17:19
@@ -5844,7 +5844,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">油管首页跳出来始皇帝直播，一看怎么是和二号机
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16972#       发表于 2020-11-24 17:21
@@ -5853,7 +5853,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 不要暗讽阿希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 16973#       发表于 2020-11-24 17:22
@@ -5864,7 +5864,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Peris  
 ##### 16974#       发表于 2020-11-24 17:23
@@ -5874,7 +5874,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 <img src="https://p.sda1.dev/0/bb991a303152e0328f77ce84271d2e6f/1515AB89A7C9E75B5FC00104EA7F65B5.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16975#       发表于 2020-11-24 17:25
@@ -5885,7 +5885,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 只不过不是故意没给钱而已，庆祝这个算灵堂麦片吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16976#       发表于 2020-11-24 17:29
@@ -5894,7 +5894,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 你让星街和德龙换一换你看她换不换
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 16977#       发表于 2020-11-24 17:32
@@ -5905,7 +5905,7 @@ en真的就是同接和订阅能打啊，这没啥不好的啊 ...</blockquote>
 syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16978#       发表于 2020-11-24 17:35
@@ -5914,7 +5914,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 其实现在回想一下，当初佐贺PV发布的那个时间点还是挺微妙的，某种程度上讲也算是个伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 16979#       发表于 2020-11-24 17:37
@@ -5923,7 +5923,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 所以佐贺那pv到底是什么情况
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 16980#       发表于 2020-11-24 17:39
@@ -5932,7 +5932,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 所以kfc是要开一个套皮点餐窗口吗，真是virtual呢
 
 
------
+*****
 
 ####  Obey-then-die  
 ##### 16981#       发表于 2020-11-24 17:40
@@ -5944,7 +5944,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wety  
 ##### 16982#       发表于 2020-11-24 17:41
@@ -5953,7 +5953,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 佐贺那个是给钱了，cn这边没要？是不是这样
 
 
------
+*****
 
 ####  franklau  
 ##### 16983#       发表于 2020-11-24 17:42
@@ -5988,7 +5988,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 <img src="https://img.saraba1st.com/forum/202011/24/174214bpq5wps5w5v4qpeq.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  franklau  
 ##### 16984#       发表于 2020-11-24 17:46
@@ -6000,7 +6000,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 字幕組和老趙用愛發電，沒什麼
 
 
------
+*****
 
 ####  yla  
 ##### 16985#       发表于 2020-11-24 17:50
@@ -6009,7 +6009,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">开封菜要是真找ickr谈工商，让露露或者笹木录个点餐用的语音，我就天天吃开封菜
 
 
------
+*****
 
 ####  TiHaru  
 ##### 16986#       发表于 2020-11-24 17:50
@@ -6020,7 +6020,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 按照b站用户的平均年龄我觉得指示一下没问题吧
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 16987#       发表于 2020-11-24 17:54
@@ -6029,7 +6029,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 就怕跟KFC联动FF14和粥游那几次一个尿性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 16988#       发表于 2020-11-24 17:55
@@ -6040,7 +6040,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 举报给ichikara可以让这个店赔死
 
 
------
+*****
 
 ####  yla  
 ##### 16989#       发表于 2020-11-24 17:55
@@ -6054,7 +6054,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 至于浓度...如果是gachi浓度的话...oto真的是身经百战，明明嘴上说不养gachi，但是三天两头发会让gachi度大幅增加的7秒短视频...就很专业
 
 
------
+*****
 
 ####  ViviR  
 ##### 16990#       发表于 2020-11-24 17:56
@@ -6063,7 +6063,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 那个kfc的图nga彩虹分区那边好像辟谣是内鬼自己搞的了。
 
 
------
+*****
 
 ####  黑暗剑  
 ##### 16991#       发表于 2020-11-24 17:57
@@ -6075,7 +6075,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 [https://space.bilibili.com/36774154/dynamic](https://space.bilibili.com/36774154/dynamic)当事人B博，你觉得cover会优待这些免费劳动力吗
 
 
------
+*****
 
 ####  AKili  
 ##### 16992#       发表于 2020-11-24 17:57
@@ -6084,7 +6084,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 这kfc图挺搞的 国内不应该上维啊吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16993#       发表于 2020-11-24 18:01
@@ -6093,7 +6093,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 考虑辞职之后要不要弄个理芽专楼，可惜信息太少了。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16994#       发表于 2020-11-24 18:05
@@ -6102,7 +6102,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 拿鸡毛当令箭，小鬼把V说的话加入自己的理解到处复读就特别离谱
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 16995#       发表于 2020-11-24 18:08
@@ -6111,7 +6111,7 @@ syl，02姐和批站在谈了吗在谈了吗好急好急戒断了
 但是oto的话还好吧  她必然不会和粉丝对线  大不了发现别人传话她再发个小作文  叫他们不要传话  不就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 16996#       发表于 2020-11-24 18:09
@@ -6122,7 +6122,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 这个招 聘明显是私货啊，员工这点意识都没有，你咋不放个holo呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 16997#       发表于 2020-11-24 18:13
@@ -6134,7 +6134,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 这他妈还不如杏女呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 16998#       发表于 2020-11-24 18:14
@@ -6143,7 +6143,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 把V的话曲解还当圣旨我是受够了。我是无法理解为什么会有人因为大天使的一句感叹会把宇森女士无端变成粉色败犬的。这CP脑的脑补明显非本意而且加的戏显得大天使人品有问题都没察觉，还把鸡毛令箭在别人那边乱刷，实属有贴性没人性早该入土为安别祸害其他人了。
 
 
------
+*****
 
 ####  caupollen  
 ##### 16999#       发表于 2020-11-24 18:20
@@ -6154,7 +6154,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17000#       发表于 2020-11-24 18:26
@@ -6165,7 +6165,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 直播唱歌也需要重新挑战的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法少女大头  
 ##### 17001#       发表于 2020-11-24 18:27
@@ -6174,7 +6174,7 @@ kfc和一堆手游联动过，不过看起来是让手游玩家去吃kfc，大�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的，天天吹现在批站管人区百花齐放，车歌力车歌力，结果除了开始的几天，一到晚上全是在整烂活，唱歌频率最高的反而是我之前黑屁高阶混响战士的373.
 
 
------
+*****
 
 ####  wety  
 ##### 17002#       发表于 2020-11-24 18:37
@@ -6186,7 +6186,7 @@ https://space.bilibili.com/36774154/dynamic当事人B博，你觉得cover会优�
 看完了我也搞不清楚，你说这v圈老出谜语人做啥
 
 
------
+*****
 
 ####  katern  
 ##### 17003#       发表于 2020-11-24 18:46
@@ -6202,7 +6202,7 @@ syl   
 [https://www.youtube.com/watch?v=3hIo99ykWVE](https://www.youtube.com/watch?v=3hIo99ykWVE)
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17004#       发表于 2020-11-24 18:48
@@ -6220,7 +6220,7 @@ syl   
 [https://youtu.be/PD7lvla7qAQ](https://youtu.be/PD7lvla7qAQ)
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17005#       发表于 2020-11-24 18:51
@@ -6229,7 +6229,7 @@ syl   
 车歌力不就会让对自己有点逼数的想想还是算了，敢唱的多是有自信的。免费你害了管人区多样性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 17006#       发表于 2020-11-24 18:52
@@ -6238,7 +6238,7 @@ syl   
 人家sou在卡拉ok用傻逼麦直播都要喷，星咏者无敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17007#       发表于 2020-11-24 19:01
@@ -6254,7 +6254,7 @@ HH开了
 正面撞，来！
 
 
------
+*****
 
 ####  theloved  
 ##### 17008#       发表于 2020-11-24 19:02
@@ -6263,7 +6263,7 @@ HH开了
 我突然想起来yagoo和字幕组的告别，这是不是看到佐贺500W了想起来PV是一群打白工做的，然后去YYGQ那些字幕组？
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17009#       发表于 2020-11-24 19:05
@@ -6272,7 +6272,7 @@ HH开了
 歌势泥头车对撞我是真的裂开了，一个台式一个笔记本都不知道听哪边
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17010#       发表于 2020-11-24 19:06
@@ -6281,7 +6281,7 @@ HH开了
 松下还是差太多了
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17011#       发表于 2020-11-24 19:09
@@ -6293,7 +6293,7 @@ HH开了
 不过本来应该就撞不过，上次1nd live 的油管试听有个1w同接，2nd似乎是6k
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17012#       发表于 2020-11-24 19:14
@@ -6302,7 +6302,7 @@ HH开了
 哦哦这首没那么黑柿子了好听
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17013#       发表于 2020-11-24 19:14
@@ -6320,7 +6320,7 @@ HH开了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17014#       发表于 2020-11-24 19:15
@@ -6329,7 +6329,7 @@ HH开了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">corner them up！
 
 
------
+*****
 
 ####  katern  
 ##### 17015#       发表于 2020-11-24 19:15
@@ -6338,7 +6338,7 @@ HH开了
 草，这是直接把木口定性成fh企业了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17016#       发表于 2020-11-24 19:18
@@ -6347,7 +6347,7 @@ HH开了
 草 违法团体hololive
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 17017#       发表于 2020-11-24 19:19
@@ -6356,7 +6356,7 @@ HH开了
 刚说完oto又发小视频了
 
 
------
+*****
 
 ####  死体残留  
 ##### 17018#       发表于 2020-11-24 19:20
@@ -6365,7 +6365,7 @@ HH开了
 狗子：布丁管不了我！
 
 
------
+*****
 
 ####  千年流放  
 ##### 17019#       发表于 2020-11-24 19:21
@@ -6374,7 +6374,7 @@ HH开了
 会是微限吗
 
 
------
+*****
 
 ####  caupollen  
 ##### 17020#       发表于 2020-11-24 19:22
@@ -6383,7 +6383,7 @@ HH开了
 视频待会直接隐藏, 😥又给杏带一波被cn欺负的流量.世界各国人民一定要支持我们被霸凌的最好的holo
 
 
------
+*****
 
 ####  空集  
 ##### 17021#       发表于 2020-11-24 19:22
@@ -6394,7 +6394,7 @@ HH开了
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17022#       发表于 2020-11-24 19:24
@@ -6405,7 +6405,7 @@ HH开了
 另外下面又有人鞭尸心动了
 
 
------
+*****
 
 ####  walfeds  
 ##### 17023#       发表于 2020-11-24 19:25
@@ -6414,7 +6414,7 @@ HH开了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么开发商大还是发行商大
 
 
------
+*****
 
 ####  wety  
 ##### 17024#       发表于 2020-11-24 19:27
@@ -6423,7 +6423,7 @@ HH开了
 就这么点事难道打跨国官司，顶天隔空对骂就是了，事后双方各自宣布胜利
 
 
------
+*****
 
 ####  獅白ぼたん  
 ##### 17025#       发表于 2020-11-24 19:28
@@ -6432,7 +6432,7 @@ HH开了
 按理这至少要能掐掉木口直播权才敢发微博吧，不然木口继续播人丢的比心动还大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑暗剑  
 ##### 17026#       发表于 2020-11-24 19:30
@@ -6443,7 +6443,7 @@ HH开了
 原来chima也在唱，不过点进去就是希望之花
 
 
------
+*****
 
 ####  chaucerling  
 ##### 17027#       发表于 2020-11-24 19:30
@@ -6452,7 +6452,7 @@ HH开了
 至少把锅扔给发行了，至于发行要不要学心动就另说
 
 
------
+*****
 
 ####  空集  
 ##### 17028#       发表于 2020-11-24 19:31
@@ -6463,7 +6463,7 @@ HH开了
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17029#       发表于 2020-11-24 19:31
@@ -6472,7 +6472,7 @@ HH开了
 上次狼外婆土下座1个月，狗皇来妇科一个求求了
 
 
------
+*****
 
 ####  某穆克拉  
 ##### 17030#       发表于 2020-11-24 19:32
@@ -6481,7 +6481,7 @@ HH开了
 仔细看了眼，这是把日本部分的发行卖了吧。国内发个微博恰口饭就是了。
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17031#       发表于 2020-11-24 19:32
@@ -6500,7 +6500,7 @@ HH开了
 “天皇和她的继承人对自己的国土名胜景观进行巡视”
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17032#       发表于 2020-11-24 19:33
@@ -6509,7 +6509,7 @@ HH开了
 seeds是不是把彩虹3d棚包下来了？
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17033#       发表于 2020-11-24 19:34
@@ -6524,7 +6524,7 @@ seeds是不是把彩虹3d棚包下来了？
 点歌（指无限希望之花<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17034#       发表于 2020-11-24 19:34
@@ -6533,7 +6533,7 @@ seeds是不是把彩虹3d棚包下来了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这公告第一段第二段，是抄心动在NGA发的第一版公告的。
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17035#       发表于 2020-11-24 19:34
@@ -6544,7 +6544,7 @@ chima今天唱凸待嘉宾点的歌，大部分都是希望之花，我还是先
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17036#       发表于 2020-11-24 19:36
@@ -6584,7 +6584,7 @@ chima今天唱凸待嘉宾点的歌，大部分都是希望之花，我还是先
 emmmmmmm
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17037#       发表于 2020-11-24 19:41
@@ -6593,7 +6593,7 @@ emmmmmmm
 虹3d直播往返跑，这虚无程度以后也别拿来车杏了
 
 
------
+*****
 
 ####  wety  
 ##### 17038#       发表于 2020-11-24 19:42
@@ -6605,7 +6605,7 @@ emmmmmmm
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草台班子大比拼吗
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17039#       发表于 2020-11-24 19:42
@@ -6614,7 +6614,7 @@ emmmmmmm
 谱皇好好好，不是30代圆脸就是好！
 
 
------
+*****
 
 ####  奥尔斯蒂德  
 ##### 17040#       发表于 2020-11-24 19:43
@@ -6623,7 +6623,7 @@ emmmmmmm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心动那帖时不时还被鞭尸呢
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 17041#       发表于 2020-11-24 19:44
@@ -6638,7 +6638,7 @@ emmmmmmm
 不是版权炮连个炮管都没有就一个轱辘两个轮子，鼓噪一番我们就要捧个钱场？十二生肖属大宋的？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17042#       发表于 2020-11-24 19:47
@@ -6647,7 +6647,7 @@ emmmmmmm
 6首希望之花后终于有别的点歌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜一个这首完了下一首还是（ry
 
 
------
+*****
 
 ####  魔法少女大头  
 ##### 17043#       发表于 2020-11-24 19:56
@@ -6656,7 +6656,7 @@ emmmmmmm
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么还是希望之花
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17044#       发表于 2020-11-24 19:56
@@ -6665,7 +6665,7 @@ emmmmmmm
 魔法来了
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17045#       发表于 2020-11-24 20:03
@@ -6676,7 +6676,7 @@ chima这评论栏的铁血圣经咏唱看着跟独轮车差不多了<img src="ht
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 17046#       发表于 2020-11-24 20:05
@@ -6686,7 +6686,7 @@ https://youtu.be/np7P4jmLQkM
 小免家的大葵尤克里里弹唱。来看
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 17047#       发表于 2020-11-24 20:07
@@ -6695,7 +6695,7 @@ https://youtu.be/np7P4jmLQkM
 免费的标杆，xx葵3d弹唱直播欸
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17048#       发表于 2020-11-24 20:09
@@ -6705,7 +6705,7 @@ https://youtu.be/np7P4jmLQkM
 [https://youtu.be/OUeSjl0LH6o](https://youtu.be/OUeSjl0LH6o)
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17049#       发表于 2020-11-24 20:11
@@ -6714,7 +6714,7 @@ https://youtu.be/np7P4jmLQkM
 就不能点个琴浦小姐的《希望之花》吗，这才是真的希望之花啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17050#       发表于 2020-11-24 20:14
@@ -6725,7 +6725,7 @@ https://youtu.be/np7P4jmLQkM
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17051#       发表于 2020-11-24 20:15
@@ -6744,7 +6744,7 @@ https://youtu.be/np7P4jmLQkM
 [https://twitter.com/kakunipan/status/1331176557570715648](https://twitter.com/kakunipan/status/1331176557570715648)
 
 
------
+*****
 
 ####  NBXX  
 ##### 17052#       发表于 2020-11-24 20:16
@@ -6771,7 +6771,7 @@ https://youtu.be/np7P4jmLQkM
 查看全部评分
 
 
------
+*****
 
 ####  空集  
 ##### 17053#       发表于 2020-11-24 20:17
@@ -6780,7 +6780,7 @@ https://youtu.be/np7P4jmLQkM
 雪团是真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17054#       发表于 2020-11-24 20:20
@@ -6792,7 +6792,7 @@ https://youtu.be/np7P4jmLQkM
 快了快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17055#       发表于 2020-11-24 20:21
@@ -6806,7 +6806,7 @@ https://youtu.be/np7P4jmLQkM
 这是放弃续约了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17056#       发表于 2020-11-24 20:25
@@ -6815,7 +6815,7 @@ https://youtu.be/np7P4jmLQkM
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17057#       发表于 2020-11-24 20:27
@@ -6824,7 +6824,7 @@ https://youtu.be/np7P4jmLQkM
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪花第二个来团长这，雪团是真滴，夸皇也来了，这就是大家庭的夸吗？
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17058#       发表于 2020-11-24 20:29
@@ -6833,7 +6833,7 @@ https://youtu.be/np7P4jmLQkM
 你菜现在真的是太屌了，推特除了说自己收益化跑了和鸽了RD以外一动不动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想干赶紧滚吧。
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17059#       发表于 2020-11-24 20:30
@@ -6844,7 +6844,7 @@ https://youtu.be/np7P4jmLQkM
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  空集  
 ##### 17060#       发表于 2020-11-24 20:32
@@ -6853,7 +6853,7 @@ https://youtu.be/np7P4jmLQkM
 安定的三期生一起来
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17061#       发表于 2020-11-24 20:33
@@ -6862,7 +6862,7 @@ https://youtu.be/np7P4jmLQkM
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三期一起来了，还是这么吵，感觉快一年了，虽然大家都成长了很多（指数据），但气氛还是保持不变。（初号机别喊了，耳朵聋了）
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 17062#       发表于 2020-11-24 20:34
@@ -6874,7 +6874,7 @@ https://youtu.be/np7P4jmLQkM
 属实作业之敌<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 17063#       发表于 2020-11-24 20:34
@@ -6883,7 +6883,7 @@ https://youtu.be/np7P4jmLQkM
 声音拉到最低还是被润润吓到，真有你的
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17064#       发表于 2020-11-24 20:35
@@ -6892,7 +6892,7 @@ https://youtu.be/np7P4jmLQkM
 看到楼友说雪团是真的，我还以为是在说春物
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17065#       发表于 2020-11-24 20:35
@@ -6901,7 +6901,7 @@ https://youtu.be/np7P4jmLQkM
 “我会给你一个无法拒绝的条件” 
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17066#       发表于 2020-11-24 20:39
@@ -6910,7 +6910,7 @@ https://youtu.be/np7P4jmLQkM
 还有雨滴演唱会呢，跑路还是跑不了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17067#       发表于 2020-11-24 20:40
@@ -6919,7 +6919,7 @@ https://youtu.be/np7P4jmLQkM
 夸送的这个幼儿夸图实在太弱智，我遭不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17068#       发表于 2020-11-24 20:43
@@ -6928,7 +6928,7 @@ https://youtu.be/np7P4jmLQkM
 往好了想，觉得自己太拉跨，“练习”
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17069#       发表于 2020-11-24 20:50
@@ -6937,7 +6937,7 @@ https://youtu.be/np7P4jmLQkM
 这RAP直接唱掉了1W同接可还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NBXX  
 ##### 17070#       发表于 2020-11-24 20:55
@@ -6949,7 +6949,7 @@ Bilibili、12/19開催のライブ「Bilibili Macro Link-VR」に日本人VTuber
 报道出了偏差，把人气看成关注了。
 
 
------
+*****
 
 ####  walfeds  
 ##### 17071#       发表于 2020-11-24 21:00
@@ -6958,7 +6958,7 @@ Bilibili、12/19開催のライブ「Bilibili Macro Link-VR」に日本人VTuber
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">panora你认真点
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17072#       发表于 2020-11-24 21:01
@@ -6972,7 +6972,7 @@ http ...</blockquote>
 还解释天道酬勤的，乐到，就是个垃圾公众号吧，还不如5ch掏粪有意思
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17073#       发表于 2020-11-24 21:02
@@ -6981,7 +6981,7 @@ http ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不挺好的，要是通过这个能把在404苦苦挣扎的v们捞到b站让cn粉丝们救济，无论对哪方来说都是件乐事。
 
 
------
+*****
 
 ####  6二三  
 ##### 17074#       发表于 2020-11-24 21:06
@@ -6996,7 +6996,7 @@ http ...</blockquote>
 syl:可可亚唱完了没留档？
 
 
------
+*****
 
 ####  6二三  
 ##### 17075#       发表于 2020-11-24 21:07
@@ -7005,7 +7005,7 @@ syl:可可亚唱完了没留档？
 chuanpu 会自动变成ykw？
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17076#       发表于 2020-11-24 21:07
@@ -7014,7 +7014,7 @@ chuanpu 会自动变成ykw？
 明明通知美慧姐喜欢了我的回复却不显示！推特你还我的小红心！！！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 17077#       发表于 2020-11-24 21:08
@@ -7032,7 +7032,7 @@ http ...</blockquote><blockquote>緋赤さんの出演について、Bilibiliの
 还有点意思啊
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17078#       发表于 2020-11-24 21:11
@@ -7054,7 +7054,7 @@ QQ图片20201124211008.png
 <img src="https://img.saraba1st.com/forum/202011/24/211057kr775847y51aav4a.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17079#       发表于 2020-11-24 21:13
@@ -7063,7 +7063,7 @@ QQ图片20201124211008.png
 怎么还扯到人品了，吹得真难受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17080#       发表于 2020-11-24 21:16
@@ -7072,7 +7072,7 @@ QQ图片20201124211008.png
 是不是可以当定型文用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pliee  
 ##### 17081#       发表于 2020-11-24 21:16
@@ -7084,7 +7084,7 @@ QQ图片20201124211008.png
 。。。这吹的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17082#       发表于 2020-11-24 21:17
@@ -7093,7 +7093,7 @@ QQ图片20201124211008.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阿希刚才跟阿夸比跑步 一边跟在阿夸后面追一边大喊阿夸酱！
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17083#       发表于 2020-11-24 21:19
@@ -7102,7 +7102,7 @@ QQ图片20201124211008.png
 没东西可吹那吹人品总归没错的
 
 
------
+*****
 
 ####  フミさん  
 ##### 17084#       发表于 2020-11-24 21:19
@@ -7112,7 +7112,7 @@ QQ图片20201124211008.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">hachiR台转播，在唱恐山
 
 
------
+*****
 
 ####  藤宮はすみ  
 ##### 17085#       发表于 2020-11-24 21:20
@@ -7121,7 +7121,7 @@ QQ图片20201124211008.png
 <blockquote>緋赤エリオさんはその高尚な人格により人を惹きつけています</blockquote>
 
 
------
+*****
 
 ####  walfeds  
 ##### 17086#       发表于 2020-11-24 21:21
@@ -7132,7 +7132,7 @@ QQ图片20201124211008.png
 5ch除了能掏粪正经消息还不是倒你所谓的垃圾公众号二手
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17087#       发表于 2020-11-24 21:21
@@ -7166,7 +7166,7 @@ QQ图片20201124211008.png
 天开司，谢谢你
 
 
------
+*****
 
 ####  十四洲  
 ##### 17088#       发表于 2020-11-24 21:23
@@ -7177,7 +7177,7 @@ QQ图片20201124211008.png
 天开这是又把虹最强卡组拉一起了，🐮 
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 17089#       发表于 2020-11-24 21:29
@@ -7195,7 +7195,7 @@ QQ图片20201124211008.png
 司，yyds<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 17090#       发表于 2020-11-24 21:31
@@ -7204,7 +7204,7 @@ QQ图片20201124211008.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是说那天9w同接?
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17091#       发表于 2020-11-24 21:32
@@ -7213,7 +7213,7 @@ QQ图片20201124211008.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这才是人狼完全体阿，不合群的建议该干嘛干嘛，准备一下KTV环节表演什么节目吧
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17092#       发表于 2020-11-24 21:32
@@ -7222,7 +7222,7 @@ QQ图片20201124211008.png
 这最强卡组感觉也是被隔壁三期吊打的节奏，虹已经完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  huanshen  
 ##### 17093#       发表于 2020-11-24 21:33
@@ -7248,7 +7248,7 @@ QQ图片20201124211008.png
 查看全部评分
 
 
------
+*****
 
 ####  BonkoraKKK  
 ##### 17094#       发表于 2020-11-24 21:35
@@ -7261,7 +7261,7 @@ panora这种就是那种企业约的稿吧，就是有点软文的意思
 临时插队BML之余，广告、软文全都放的是她
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17095#       发表于 2020-11-24 21:36
@@ -7278,7 +7278,7 @@ syl
 这文章又是天道酬勤又是直球中之人失业家族不幸的，100%是阿B自己写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17096#       发表于 2020-11-24 21:40
@@ -7287,7 +7287,7 @@ syl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从昨天的宇宙人狼来看，说没有多少白皮看虹是伪命题吧，4w多的同接，杏人狼起码有俩次比这个低的。
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17097#       发表于 2020-11-24 21:41
@@ -7298,7 +7298,7 @@ syl
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 17098#       发表于 2020-11-24 21:46
@@ -7307,7 +7307,7 @@ syl
 不知道这次联动皇女又会爆出什么怪话，我可太期待了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17099#       发表于 2020-11-24 21:50
@@ -7316,7 +7316,7 @@ syl
 AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多人联动，白皮不会看的……
 
 
------
+*****
 
 ####  wety  
 ##### 17100#       发表于 2020-11-24 21:52
@@ -7325,7 +7325,7 @@ AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多
 人品？？？？宣传用这个，看的我ptsd发作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17101#       发表于 2020-11-24 21:54
@@ -7334,7 +7334,7 @@ AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 节目效果不用担心的，这八个人可以说是你虹最有效果的八人组了，这是硬实力，
 
 
------
+*****
 
 ####  sgssk  
 ##### 17102#       发表于 2020-11-24 21:55
@@ -7358,7 +7358,7 @@ AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多
 那8月底的谜语到底是想搞啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17103#       发表于 2020-11-24 21:56
@@ -7373,7 +7373,7 @@ AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多
 [https://www.youtube.com/watch?v=FCCzzWNENsk&amp;feature=youtu.be](https://www.youtube.com/watch?v=FCCzzWNENsk&amp;feature=youtu.be)
 
 
------
+*****
 
 ####  S_koname  
 ##### 17104#       发表于 2020-11-24 21:57
@@ -7382,7 +7382,7 @@ AU是人狼啊，不是糖豆人……虽然超有人气，但是这种游戏多
 就怕到时来一群人直播比惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 17105#       发表于 2020-11-24 21:59
@@ -7393,7 +7393,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 可是我认识的妈都已经是__版的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 17106#       发表于 2020-11-24 22:00
@@ -7402,7 +7402,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 <img src="https://static.saraba1st.com/image/smiley/carton2017/012.png" referrerpolicy="no-referrer">不能因为团长一波起飞，就忽略了她之前在B播了这么长的日子啊
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17107#       发表于 2020-11-24 22:03
@@ -7413,7 +7413,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17108#       发表于 2020-11-24 22:06
@@ -7425,7 +7425,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 根本不需要直播卖惨，有人帮你在nga卖惨都可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 17109#       发表于 2020-11-24 22:09
@@ -7434,7 +7434,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在油管也一样当底边，那在哪当底边有区别吗
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17110#       发表于 2020-11-24 22:11
@@ -7443,7 +7443,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 油管:木口，角盘:彩虹:，冲国:p家，这就是三分天下吗？
 
 
------
+*****
 
 ####  Ronso  
 ##### 17111#       发表于 2020-11-24 22:13
@@ -7452,7 +7452,7 @@ LIVE2D中文版上线了<img src="https://static.saraba1st.com/image/smiley/face
 b站除了p家不还有好几个能打的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 17112#       发表于 2020-11-24 22:13
@@ -7464,7 +7464,7 @@ b站除了p家不还有好几个能打的吗<img src="https://static.saraba1st.c
 这404，到底是白人的404还是世界的404
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17113#       发表于 2020-11-24 22:15
@@ -7473,7 +7473,7 @@ b站除了p家不还有好几个能打的吗<img src="https://static.saraba1st.c
 白人的就是世界的👱
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17114#       发表于 2020-11-24 22:23
@@ -7482,7 +7482,7 @@ b站除了p家不还有好几个能打的吗<img src="https://static.saraba1st.c
 团长是有paryi加成，也待了很长时间，绝壁是三周目加成，也待了很长时间，花寄也是有mue和鹿乃的加成美波七海和noworld对底边yhm应该才是最震撼的……
 
 
------
+*****
 
 ####  admentus  
 ##### 17115#       发表于 2020-11-24 22:25
@@ -7511,7 +7511,7 @@ b站除了p家不还有好几个能打的吗<img src="https://static.saraba1st.c
 aki也出现了，练舞组跟说好了似的出现在兔子直播间
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17116#       发表于 2020-11-24 22:25
@@ -7520,7 +7520,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希说的是不知道可不可以提 要先跟本人确认过 
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 17117#       发表于 2020-11-24 22:26
@@ -7533,7 +7533,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 「配信の企画は完璧ではありませんが、にじさんじのライバーさんはその高尚な人格により人を惹きつけています。私たちは彼らのような優秀なVTuberたちがユウチュウーブで世界のファンから愛されることを嬉しく思います」
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17118#       发表于 2020-11-24 22:29
@@ -7542,7 +7542,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 突然看到大亏竟然还有72个舰长，惊了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17119#       发表于 2020-11-24 22:31
@@ -7579,7 +7579,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 查看全部评分
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 17120#       发表于 2020-11-24 22:33
@@ -7613,7 +7613,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 你们虹女都是梦女子吗
 
 
------
+*****
 
 ####  Hemis  
 ##### 17121#       发表于 2020-11-24 22:38
@@ -7622,7 +7622,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 我本来想说木口跳舞好的是不是都是底边，其实这三个是兔子的舞蹈老师吧
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17122#       发表于 2020-11-24 22:43
@@ -7631,7 +7631,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 木口跳舞不是mmd吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wety  
 ##### 17123#       发表于 2020-11-24 22:49
@@ -7640,7 +7640,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 除了有偶像梦的，没几个练舞吧
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17124#       发表于 2020-11-24 22:53
@@ -7649,7 +7649,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 郡郡还有精神力复牌大会麻将，respect！
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17125#       发表于 2020-11-24 22:53
@@ -7670,7 +7670,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 [https://twitter.com/HIKOSAN20216917/status/1330815126711136256](https://twitter.com/HIKOSAN20216917/status/1330815126711136256)
 
 
------
+*****
 
 ####  admentus  
 ##### 17126#       发表于 2020-11-24 22:55
@@ -7679,7 +7679,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 那也不是，船长兔子这种对自身定位很明确而且比起偶像梦更想挣钱的樱花姨都整天练舞，这群人无论是真要准备live还是只是创造一个人设，多少还是得上舞蹈课的
 
 
------
+*****
 
 ####  空集  
 ##### 17127#       发表于 2020-11-24 22:56
@@ -7690,7 +7690,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17128#       发表于 2020-11-24 23:00
@@ -7699,7 +7699,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 原来真有人被免费的复读催眠了的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17129#       发表于 2020-11-24 23:05
@@ -7718,7 +7718,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 [https://www.bilibili.com/video/BV1kA411x7ZH](https://www.bilibili.com/video/BV1kA411x7ZH)
 
 
------
+*****
 
 ####  admentus  
 ##### 17130#       发表于 2020-11-24 23:05
@@ -7745,7 +7745,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 查看全部评分
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17131#       发表于 2020-11-24 23:08
@@ -7754,7 +7754,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 除了中国人开发的游戏，我就不信交钱都拿不到版权，99%你杏不想分红罢了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17132#       发表于 2020-11-24 23:10
@@ -7763,7 +7763,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 应该是100%，我的兔宝怎么就生在了这么个废物公司呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17133#       发表于 2020-11-24 23:10
@@ -7772,7 +7772,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 才看到今天天皇和皇女出巡にじ鯖，这是正式确认太子监国了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17134#       发表于 2020-11-24 23:11
@@ -7781,7 +7781,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 你杏也不缺钱吧，怎么就这么一毛不拔
 
 
------
+*****
 
 ####  asdhai  
 ##### 17135#       发表于 2020-11-24 23:13
@@ -7790,7 +7790,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 别的公司就算了，那可是科乐美啊。没别的方丈比他们心眼更小的了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17136#       发表于 2020-11-24 23:13
@@ -7799,7 +7799,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> liver和公司一起赚大钱，比靠某些骗风投，肥了CEO腰包，liver家徒四壁的企业强多了
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17137#       发表于 2020-11-24 23:15
@@ -7833,7 +7833,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 [https://twitter.com/x_x36131422/status/1331239830206996488](https://twitter.com/x_x36131422/status/1331239830206996488)
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17138#       发表于 2020-11-24 23:16
@@ -7842,7 +7842,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 卡婊应该是钱的问题，科乐美我觉得真的是方丈心眼小，因为小岛的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17139#       发表于 2020-11-24 23:16
@@ -7853,7 +7853,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 虹这种直播赚个饭钱大头靠谷子工商的，配信版权相关反而分不走几个钱。
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17140#       发表于 2020-11-24 23:17
@@ -7864,7 +7864,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 前几次唱得不是很好、很有力气吗？
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17141#       发表于 2020-11-24 23:18
@@ -7873,7 +7873,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 杏Liver这么能给公司赚钱，到头来却玩不了自己想玩的游戏，cover罪大恶极
 
 
------
+*****
 
 ####  pansherry  
 ##### 17142#       发表于 2020-11-24 23:19
@@ -7884,7 +7884,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  shanzihao  
 ##### 17143#       发表于 2020-11-24 23:19
@@ -7893,7 +7893,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 这不是母猪么？
 
 
------
+*****
 
 ####  admentus  
 ##### 17144#       发表于 2020-11-24 23:23
@@ -7910,7 +7910,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 你杏这产能谷子都出不了多少，连白送的钱都赚不到，真的是废物，这种公司活着还有什么必要<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  asdhai  
 ##### 17145#       发表于 2020-11-24 23:25
@@ -7934,7 +7934,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 查看全部评分
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17146#       发表于 2020-11-24 23:25
@@ -7943,7 +7943,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 你杏staff硬指标只有一条那就是热爱杏骚扰，别的什么都不会也没关系的啦。
 
 
------
+*****
 
 ####  -rm7-  
 ##### 17147#       发表于 2020-11-24 23:26
@@ -7953,7 +7953,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 应该是以前的吧
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17148#       发表于 2020-11-24 23:26
@@ -7962,7 +7962,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 假如游戏点卡收费，玩24小时花你月收入的1%，那月入2w的人可能去玩，月入200w的人就不会去玩了
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17149#       发表于 2020-11-24 23:27
@@ -7971,7 +7971,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 可能sc钱多到不想赚了吧，staff躺着能赚钱为啥费劲出谷子
 
 
------
+*****
 
 ####  空集  
 ##### 17150#       发表于 2020-11-24 23:29
@@ -7983,7 +7983,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17151#       发表于 2020-11-24 23:33
@@ -7996,7 +7996,7 @@ aki也出现了，练舞组跟说好了似的出现在兔子直播间
 syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  papapapadopoulo  
 ##### 17152#       发表于 2020-11-24 23:35
@@ -8005,7 +8005,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 每天嗯玩mc都有人打钱，为什么要播别的游戏，还要花钱<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17153#       发表于 2020-11-24 23:35
@@ -8014,7 +8014,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 和竭泽而渔的彩虹形成了鲜明的对比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 17154#       发表于 2020-11-24 23:36
@@ -8023,7 +8023,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 5点起也太早了  现在都几点了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 17155#       发表于 2020-11-24 23:37
@@ -8032,7 +8032,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 不是杏一开始饥渴营销方案么，出道，谷子，报团都是yagoo的精英化的饥渴营销策略啊，又不用招那么多人吃白饭又能榨取最大利益
 
 
------
+*****
 
 ####  S_koname  
 ##### 17156#       发表于 2020-11-24 23:37
@@ -8041,7 +8041,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 灵儿姐今天皮大概不会发晚安了，魂已经晚安10分钟了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17157#       发表于 2020-11-24 23:38
@@ -8050,7 +8050,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 兔宝的天城越好拉胯，好好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17158#       发表于 2020-11-24 23:41
@@ -8061,7 +8061,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17159#       发表于 2020-11-24 23:42
@@ -8070,7 +8070,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 我接触过几个网红电商团队，彩虹这种自建EC卖谷子的开发运营啥的加一块至少要养二十几个人的团队，量大还要加人，你觉得谷乡肯掏这个钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17160#       发表于 2020-11-24 23:44
@@ -8082,7 +8082,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又回到了杏仁终极难题 为什么谷乡作为一个互联网公司资本家，这么的不愿意投钱。
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17161#       发表于 2020-11-24 23:45
@@ -8091,7 +8091,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 比起他掏不掏。还是想想什么时候他卖公司吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17162#       发表于 2020-11-24 23:45
@@ -8100,7 +8100,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 明明加大产量能赚更多钱，你杏头部的几个粉丝群体钱包都不会那么轻易被榨干的，等这群人哪天过气了就真来不及了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17163#       发表于 2020-11-24 23:47
@@ -8112,7 +8112,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 昭和企业家和田角这种GEN Z mind set对不上太正常了。谷乡当年能搞出中国大返还已经够开眼看世界了。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17164#       发表于 2020-11-24 23:49
@@ -8123,7 +8123,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 谷乡这几年拼命做高利润，支出方面能白嫖就白嫖，确实是像要卖个好价钱。不过起码武士道是接不住的。
 
 
------
+*****
 
 ####  katern  
 ##### 17165#       发表于 2020-11-24 23:50
@@ -8134,7 +8134,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 连小肥妹都开始有压力了，等哪天头部势真过气就知道急了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17166#       发表于 2020-11-24 23:50
@@ -8143,7 +8143,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 有亲妈出图的周边不就可以当官方周边还更划算，cover授权who cares。
 
 
------
+*****
 
 ####  飞姆托  
 ##### 17167#       发表于 2020-11-24 23:51
@@ -8154,7 +8154,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17168#       发表于 2020-11-24 23:52
@@ -8164,7 +8164,7 @@ syl，她这个作息也确实够迷的<img src="https://static.saraba1st.com/im
 holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17169#       发表于 2020-11-24 23:58
@@ -8173,7 +8173,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 就算一个厂妹liver养5个带专staff，这个利润率都爆表了，再做大这几个高层也没这本事，能躺着挣钱，加投入的话万一又亏了呢，反正现在不会亏
 
 
------
+*****
 
 ####  pansherry  
 ##### 17170#       发表于 2020-11-24 23:59
@@ -8184,7 +8184,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 17171#       发表于 2020-11-25 00:01
@@ -8197,7 +8197,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 没有精神的原因很可能是因为并不想参加海军学校<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17172#       发表于 2020-11-25 00:01
@@ -8206,7 +8206,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 不过网红公司卖不出价是全世界的共识，盈利能力太不稳定了。所以不管田角和谷乡都在拼命吹自己是XR公司，当然大家都知道他们在吹JB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17173#       发表于 2020-11-25 00:02
@@ -8224,7 +8224,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 2020-11-25 00:02 上传
 
 
------
+*****
 
 ####  死体残留  
 ##### 17174#       发表于 2020-11-25 00:03
@@ -8233,7 +8233,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">日本结婚和汽车贷款大概多少的，黑人这么快就还完了
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17175#       发表于 2020-11-25 00:05
@@ -8265,7 +8265,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 2020-11-25 00:04 上传
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17176#       发表于 2020-11-25 00:05
@@ -8275,7 +8275,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 很姨，但更适合睡觉的时候听了
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 17177#       发表于 2020-11-25 00:06
@@ -8284,7 +8284,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 这第三个怎么那么像护士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17178#       发表于 2020-11-25 00:07
@@ -8293,7 +8293,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 同个妈产的，先行披露声音也是像sky。[https://www.youtube.com/watch?v=VLwSrChM0BA&amp;feature=youtu.be](https://www.youtube.com/watch?v=VLwSrChM0BA&amp;feature=youtu.be)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17179#       发表于 2020-11-25 00:07
@@ -8302,7 +8302,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 以直播作为收入主要来源的话，那盈利能力确实不稳定，勒夫刚刚讲了新下场的乐华不会去做直播的，来钱太慢了。
 
 
------
+*****
 
 ####  某穆克拉  
 ##### 17180#       发表于 2020-11-25 00:08
@@ -8321,7 +8321,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 红团长舰队统计，感觉10.25那一批舰队都没第一时间续？
 
 
------
+*****
 
 ####  winda  
 ##### 17181#       发表于 2020-11-25 00:09
@@ -8330,7 +8330,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">今天是收录完错过终电的nrk，收录的东西这么多的么。
 
 
------
+*****
 
 ####  sw11133  
 ##### 17182#       发表于 2020-11-25 00:09
@@ -8342,7 +8342,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 你杏真的废物，兔子聊了一圈喜欢的游戏，都是没法播，怪物农场2也是暂时没法播，最后又聊到了老本行pubg， ...</blockquote>
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17183#       发表于 2020-11-25 00:09
@@ -8355,7 +8355,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 就是小护士她妈かやはら@kaya7hara 画的Syl，我觉得管人里面，小护士皮和中之人的匹配度是最高（之一）
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 17184#       发表于 2020-11-25 00:11
@@ -8366,7 +8366,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 感觉就是换了个头发颜色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17185#       发表于 2020-11-25 00:11
@@ -8375,7 +8375,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 第一个狗妈 第三个小护士妈很明显 中间那个是？
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17186#       发表于 2020-11-25 00:12
@@ -8404,7 +8404,7 @@ holo怕不是都没在这方面限制过<img src="https://static.saraba1st.com/i
 查看全部评分
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17187#       发表于 2020-11-25 00:13
@@ -8420,7 +8420,7 @@ SYL：
 和直播没关系，早年ins和微博网红的公司卖高价坑了一波接盘侠之后，网红公司的本质大家就都看懂了。
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17188#       发表于 2020-11-25 00:13
@@ -8429,7 +8429,7 @@ SYL：
 看着你们的魔怔程度，难以想象杏上位什么时候才能过气
 
 
------
+*****
 
 ####  触手姬  
 ##### 17189#       发表于 2020-11-25 00:13
@@ -8445,7 +8445,7 @@ SYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的吗？有详细吗
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17190#       发表于 2020-11-25 00:15
@@ -8464,7 +8464,7 @@ SYL：
 2020-11-25 00:14 上传
 
 
------
+*****
 
 ####  sw11133  
 ##### 17191#       发表于 2020-11-25 00:16
@@ -8476,7 +8476,7 @@ SYL：
 真的吗？有详细吗</blockquote>
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17192#       发表于 2020-11-25 00:16
@@ -8500,7 +8500,7 @@ SYL：
 查看全部评分
 
 
------
+*****
 
 ####  空集  
 ##### 17193#       发表于 2020-11-25 00:17
@@ -8516,7 +8516,7 @@ SYL：
 。。。。你这算搬运nga屎吧  这不是nga扯淡YY么 
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17194#       发表于 2020-11-25 00:17
@@ -8528,7 +8528,7 @@ SYL：
 NGA还能知道这？NGA原来是东京地检开的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 17195#       发表于 2020-11-25 00:17
@@ -8542,7 +8542,7 @@ NGA还能知道这？NGA原来是东京地检开的吗<img src="https://static.s
 反正就乐子
 
 
------
+*****
 
 ####  pliee  
 ##### 17196#       发表于 2020-11-25 00:18
@@ -8551,7 +8551,7 @@ NGA还能知道这？NGA原来是东京地检开的吗<img src="https://static.s
 哪来的消息，怎么感觉像yy<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17197#       发表于 2020-11-25 00:18
@@ -8566,7 +8566,7 @@ BSYL：
 你杏这些姨都应该学学446怎么保养身体的。
 
 
------
+*****
 
 ####  触手姬  
 ##### 17198#       发表于 2020-11-25 00:18
@@ -8575,7 +8575,7 @@ BSYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就算杏在蠢，也不会觉得自己能播原神吧
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17199#       发表于 2020-11-25 00:18
@@ -8587,7 +8587,7 @@ BSYL：
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17200#       发表于 2020-11-25 00:19
@@ -8606,7 +8606,7 @@ BSYL：
 不知道说什么，那就谢谢apex吧
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 17201#       发表于 2020-11-25 00:20
@@ -8615,7 +8615,7 @@ BSYL：
 差不多得了，ngayy的也能当真的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17202#       发表于 2020-11-25 00:20
@@ -8624,7 +8624,7 @@ BSYL：
 说实话，还没那个vup公司带来的冲击大<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 17203#       发表于 2020-11-25 00:21
@@ -8633,7 +8633,7 @@ BSYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">yy吧，拿不了工商就不播木口现在有什么游戏能不播的，当时原神是大热金游没可能不问stf能不能播的
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17204#       发表于 2020-11-25 00:22
@@ -8645,7 +8645,7 @@ BSYL：
 天皇和她的唯一指定继承人不知道有没有颤抖，
 
 
------
+*****
 
 ####  ygysh0505  
 ##### 17205#       发表于 2020-11-25 00:22
@@ -8657,7 +8657,7 @@ BSYL：
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17206#       发表于 2020-11-25 00:22
@@ -8666,7 +8666,7 @@ BSYL：
 还有杏不能播原神这个事情早几百年火鸡就说过了，NGA是东京地检在火星开的网站吗<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 17207#       发表于 2020-11-25 00:22
@@ -8675,7 +8675,7 @@ BSYL：
 想看天皇被葛皇食杀了的感想
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17208#       发表于 2020-11-25 00:23
@@ -8688,7 +8688,7 @@ BSYL：
 反正我不信，谜语人也就罢了，股东开会说什么都知道，这人能自证他是yagoo吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  奥尔斯蒂德  
 ##### 17209#       发表于 2020-11-25 00:24
@@ -8698,7 +8698,7 @@ BSYL：
 记得火鸡不是暗示过不能播了吗？要是真的这木口本部反射弧得多惊人啊。
 
 
------
+*****
 
 ####  sw11133  
 ##### 17210#       发表于 2020-11-25 00:25
@@ -8709,7 +8709,7 @@ BSYL：
 火鸡知道的时候都基本过去多久了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17211#       发表于 2020-11-25 00:25
@@ -8718,7 +8718,7 @@ BSYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 葛皇前几天刚搞完40w凸待就转头50w了，怕不是60w的时候纪念50w，葛西莉糖可以有吗？
 
 
------
+*****
 
 ####  admentus  
 ##### 17212#       发表于 2020-11-25 00:25
@@ -8727,7 +8727,7 @@ BSYL：
 不是暗示，明说过114次不能播了，印象中有一次还明说了“因为大人的原因”
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17213#       发表于 2020-11-25 00:26
@@ -8736,7 +8736,7 @@ BSYL：
 还有说实话唯一指定男V和他好兄弟的增速比我想的还快，这么看来3个月左右你虹天皇就要换人了。
 
 
------
+*****
 
 ####  zore  
 ##### 17214#       发表于 2020-11-25 00:26
@@ -8745,7 +8745,7 @@ BSYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">股权变动还行 做梦呢
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17215#       发表于 2020-11-25 00:26
@@ -8754,7 +8754,7 @@ BSYL：
 原神海外9月28号开服的，没和蝗时间差多少，火鸡开服前几天说的不能播，没有多少时间差
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17216#       发表于 2020-11-25 00:27
@@ -8765,7 +8765,7 @@ BSYL：
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17217#       发表于 2020-11-25 00:27
@@ -8784,7 +8784,7 @@ BSYL：
  riot music全员同台，到底谁最菜.jpg
 
 
------
+*****
 
 ####  a37356205  
 ##### 17218#       发表于 2020-11-25 00:28
@@ -8793,7 +8793,7 @@ BSYL：
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NGA冲蝗楼里的大多都是没有消息来源的乐子，别太认真
 
 
------
+*****
 
 ####  sgssk  
 ##### 17219#       发表于 2020-11-25 00:28
@@ -8804,7 +8804,7 @@ BSYL：
 riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播连话都疙疙瘩瘩的主播我真是第一次见，只能一直猜是过剩rp
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17220#       发表于 2020-11-25 00:29
@@ -8813,7 +8813,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 趴在地上想一想，这个LG可能是找乐子的4v……
 
 
------
+*****
 
 ####  sw11133  
 ##### 17221#       发表于 2020-11-25 00:31
@@ -8822,7 +8822,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算了，当我没说
 
 
------
+*****
 
 ####  pansherry  
 ##### 17222#       发表于 2020-11-25 00:31
@@ -8836,7 +8836,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  好德我基  
 ##### 17223#       发表于 2020-11-25 00:32
@@ -8845,7 +8845,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 葛皇，真正的唯一神
 
 
------
+*****
 
 ####  proxima  
 ##### 17224#       发表于 2020-11-25 00:33
@@ -8861,7 +8861,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 给苔苔打钱她都不发自拍了，说明已经肥的不敢自拍了
 
 
------
+*****
 
 ####  ygysh0505  
 ##### 17225#       发表于 2020-11-25 00:34
@@ -8873,7 +8873,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  forzen  
 ##### 17226#       发表于 2020-11-25 00:36
@@ -8882,7 +8882,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然知道不给播是肯定的，但是这个知道，是知道“等风头过去就好起来了”还是“知道舆论彻底死了没有翻身的可能”，那我觉得拿出来发散发散倒也无伤大雅。。草台嘛，没啥不可能的
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 17227#       发表于 2020-11-25 00:37
@@ -8891,7 +8891,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 nga懂哥带节奏真就不需要一点材料做铺垫，我还仔细看了下前后文
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17228#       发表于 2020-11-25 00:39
@@ -8905,7 +8905,7 @@ nga懂哥带节奏真就不需要一点材料做铺垫，我还仔细看了下�
 昨天开始5ch的なしスレ有id了
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17229#       发表于 2020-11-25 00:40
@@ -8926,7 +8926,7 @@ nga懂哥带节奏真就不需要一点材料做铺垫，我还仔细看了下�
 [https://www.youtube.com/watch?v=ZhzF7JvvNuM](https://www.youtube.com/watch?v=ZhzF7JvvNuM)
 
 
------
+*****
 
 ####  TRW  
 ##### 17230#       发表于 2020-11-25 00:40
@@ -8937,7 +8937,7 @@ nga懂哥带节奏真就不需要一点材料做铺垫，我还仔细看了下�
 Moira很早就玩过拼胶asmr，甚至还有高达同时视听asmr……社畜做v还是太难了，低频率保不住观众，根本推广不了
 
 
------
+*****
 
 ####  admentus  
 ##### 17231#       发表于 2020-11-25 00:42
@@ -8948,7 +8948,7 @@ Moira很早就玩过拼胶asmr，甚至还有高达同时视听asmr……社畜�
 想去听听是怎么样的，有录像链接吗？
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17232#       发表于 2020-11-25 00:44
@@ -8957,7 +8957,7 @@ Moira很早就玩过拼胶asmr，甚至还有高达同时视听asmr……社畜�
 高达同时视听asmr是什么鬼…………
 
 
------
+*****
 
 ####  胧楼  
 ##### 17233#       发表于 2020-11-25 00:49
@@ -8968,7 +8968,7 @@ Moira很早就玩过拼胶asmr，甚至还有高达同时视听asmr……社畜�
 编辑了
 
 
------
+*****
 
 ####  hlazd  
 ##### 17234#       发表于 2020-11-25 00:49
@@ -8979,7 +8979,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 她上次去saki的live不是还行嘛，这回人更多也不怕没话茬
 
 
------
+*****
 
 ####  TRW  
 ##### 17235#       发表于 2020-11-25 00:52
@@ -9005,7 +9005,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 查看全部评分
 
 
------
+*****
 
 ####  十四洲  
 ##### 17236#       发表于 2020-11-25 00:58
@@ -9016,7 +9016,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 斗虫的时候可以放叶师独立行走吗；；
 
 
------
+*****
 
 ####  十四洲  
 ##### 17237#       发表于 2020-11-25 00:58
@@ -9025,7 +9025,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 编辑
 
 
------
+*****
 
 ####  yla  
 ##### 17238#       发表于 2020-11-25 00:58
@@ -9040,7 +9040,7 @@ riot我先投一票有花亡于超绝社恐不会说话。讲真这开了直播�
 syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛仙贝偶尔接个工商和社内活动，其他时间想播什么播什么，不香吗？囚人估计会因为阿委舍掉社内头牌的包袱可以随便浪而喜极而泣。
 
 
------
+*****
 
 ####  NBXX  
 ##### 17239#       发表于 2020-11-25 01:00
@@ -9055,7 +9055,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛仙贝�
 syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</blockquote>眼花编辑
 
 
------
+*****
 
 ####  yla  
 ##### 17240#       发表于 2020-11-25 01:01
@@ -9064,7 +9064,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</bl
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17241#       发表于 2020-11-25 01:12
@@ -9073,7 +9073,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</bl
 凛仙贝阴间时间工商，同接都能掉到几百了，我就想知道这种能拿多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17242#       发表于 2020-11-25 01:12
@@ -9085,7 +9085,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</bl
 别提MH了，上次我听到阿火说有想玩MH的打算，还是在冰原没出，日常同接1000左右徘徊的时候，然后就时光飞逝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  好德我基  
 ##### 17243#       发表于 2020-11-25 01:18
@@ -9094,7 +9094,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</bl
 劈囚人还是得让2000来，拿数字劈不痛不痒的。
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17244#       发表于 2020-11-25 01:32
@@ -9103,7 +9103,7 @@ syl，你们难道觉得囚人看到天皇易位会哭天抢地吗...凛 ...</bl
 才发现木口今天白天基本没几个人直播，en更是除了ina凌晨播了以外集体不播<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 17245#       发表于 2020-11-25 01:58
@@ -9151,7 +9151,7 @@ e025d009b3de9c82c7a6c4cc7b81800a18d8432a.jpg
 <img src="https://img.saraba1st.com/forum/202011/25/015824kg8800gv9jc0dga8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 17246#       发表于 2020-11-25 02:05
@@ -9160,7 +9160,7 @@ e025d009b3de9c82c7a6c4cc7b81800a18d8432a.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1不如贴吧（定期）
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17247#       发表于 2020-11-25 02:06
@@ -9176,7 +9176,7 @@ https://www.youtu ...</blockquote>
 服卷看着怎么有点像2P色的彩虹护士
 
 
------
+*****
 
 ####  walfeds  
 ##### 17248#       发表于 2020-11-25 02:14
@@ -9188,7 +9188,7 @@ https://www.youtu ...</blockquote>
 应该是同一个画师吧，推特上画师かやはら已经关注这三个人了
 
 
------
+*****
 
 ####  林照人  
 ##### 17249#       发表于 2020-11-25 03:09
@@ -9197,7 +9197,7 @@ https://www.youtu ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么记得第一个官方入驻的是一个没啥人气的个人势
 
 
------
+*****
 
 ####  ashero  
 ##### 17250#       发表于 2020-11-25 04:00
@@ -9210,7 +9210,7 @@ https://www.youtu ...</blockquote>
 想都不用想 第一个入驻的就是始皇爱 只是当年视频势天下还没发明b限这东西而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  BonkoraKKK  
 ##### 17251#       发表于 2020-11-25 04:29
@@ -9225,7 +9225,7 @@ lga蝗楼懂哥有一套他们完整理论的
 颇有百京出租车司机给你讲京城故事的风范
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17252#       发表于 2020-11-25 04:39
@@ -9234,7 +9234,7 @@ lga蝗楼懂哥有一套他们完整理论的
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 只能说虫皇不愧是虫皇
 
 
------
+*****
 
 ####  小零360  
 ##### 17253#       发表于 2020-11-25 04:52
@@ -9252,7 +9252,7 @@ BSYL：
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  S_koname  
 ##### 17254#       发表于 2020-11-25 08:17
@@ -9261,7 +9261,7 @@ BSYL：
 蝗楼本身就是乐子楼，太认真没必要
 
 
------
+*****
 
 ####  Vneet  
 ##### 17255#       发表于 2020-11-25 08:23
@@ -9274,7 +9274,7 @@ BSYL：
 嘛V8吧也有这贴，撤回前言，大失败
 
 
------
+*****
 
 ####  zilch_ren  
 ##### 17256#       发表于 2020-11-25 08:30
@@ -9283,7 +9283,7 @@ BSYL：
 但第一个不是有理有据令人信服
 
 
------
+*****
 
 ####  opersuper  
 ##### 17257#       发表于 2020-11-25 08:50
@@ -9292,7 +9292,7 @@ BSYL：
 446有什么养生，不耐久累了就睡饱罢了
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17258#       发表于 2020-11-25 09:37
@@ -9314,7 +9314,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 <img src="https://img.saraba1st.com/forum/202011/25/093606y4elvjlol1ds1za4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17259#       发表于 2020-11-25 09:40
@@ -9323,7 +9323,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 新开的那个英语箱vshoujo还蛮有意思的  无论是疑似招的人 还是木口关系者对他推特号的关注数（详见colo楼）
 
 
------
+*****
 
 ####  gongge666  
 ##### 17260#       发表于 2020-11-25 09:52
@@ -9335,7 +9335,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 绊爱那叫授权根本不是入驻，在中国爱出来之前不管是本人还是公司都用不了B站账号的，而且也没有针对B站、国内观众的视频。
 
 
------
+*****
 
 ####  nowaki  
 ##### 17261#       发表于 2020-11-25 10:04
@@ -9344,7 +9344,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 死神还是不行，日语拉跨，火鸡随时三语切换确实牛逼
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17262#       发表于 2020-11-25 10:05
@@ -9359,7 +9359,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17263#       发表于 2020-11-25 10:09
@@ -9368,7 +9368,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cover还搁这弄你新企划呢？我兔皇新衣服呢？
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17264#       发表于 2020-11-25 10:23
@@ -9377,7 +9377,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 这个英语箱不会是木口en落选者再利用吧？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17265#       发表于 2020-11-25 10:26
@@ -9388,7 +9388,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Vneet  
 ##### 17266#       发表于 2020-11-25 10:26
@@ -9397,7 +9397,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 印象中第一个“进驻”好像是东云惠么？
 
 
------
+*****
 
 ####  ひびき  
 ##### 17267#       发表于 2020-11-25 10:30
@@ -9407,7 +9407,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 有一说一，酒精那套理论感觉可能性很高啊，有kson推和alcohol 、Diazepam被秒禁作为证据，还是人手摇车打字试出来的来自: iPhone客户端
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17268#       发表于 2020-11-25 10:31
@@ -9419,7 +9419,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  fangjun96  
 ##### 17269#       发表于 2020-11-25 10:39
@@ -9428,7 +9428,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vneet  
 ##### 17270#       发表于 2020-11-25 10:40
@@ -9437,7 +9437,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 要说en1的落选者再利用也不是不可能，毕竟谁也不知en2得啥时候自己还有没机会，有个团把她们捞过来就不用再等半年再就业了。
 
 
------
+*****
 
 ####  icecry  
 ##### 17271#       发表于 2020-11-25 10:49
@@ -9446,7 +9446,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 还有3年能看到露露了
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 17272#       发表于 2020-11-25 10:50
@@ -9455,7 +9455,7 @@ en在日二人组的本社联动果然还是比北美那三要好弄
 holo seeds?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 17273#       发表于 2020-11-25 10:53
@@ -9464,7 +9464,7 @@ holo seeds?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 VShojo这是V少女罗马音来的？明明里面混了几个怎么看都不少女的皮
 
 
------
+*****
 
 ####  Vneet  
 ##### 17274#       发表于 2020-11-25 10:54
@@ -9481,7 +9481,7 @@ syl
 刚搜了一下，原来Nyanners大粉猫我有看过她的切片，看那个宣传头像一下没认出来。
 
 
------
+*****
 
 ####  味增味增  
 ##### 17275#       发表于 2020-11-25 10:56
@@ -9490,7 +9490,7 @@ syl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不能是holovr么
 
 
------
+*****
 
 ####  Hemis  
 ##### 17276#       发表于 2020-11-25 10:58
@@ -9503,7 +9503,7 @@ syl
 还有andy之类的还是看得蛮乐呵的
 
 
------
+*****
 
 ####  poipanchao  
 ##### 17277#       发表于 2020-11-25 11:15
@@ -9514,7 +9514,7 @@ syl
 时光荏苒
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17278#       发表于 2020-11-25 11:16
@@ -9526,7 +9526,7 @@ syl
 https://b23.tv/to4fHG
 
 
------
+*****
 
 ####  yla  
 ##### 17279#       发表于 2020-11-25 11:35
@@ -9541,7 +9541,7 @@ https://b23.tv/to4fHG
 我要去看灵儿的熟肉安抚下内心。啊，午饭还忘点了
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17280#       发表于 2020-11-25 11:36
@@ -9567,7 +9567,7 @@ https://b23.tv/to4fHG
 <img src="https://img.saraba1st.com/forum/202011/25/113607kgkkzcpukp71u8ew.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  耻照  
 ##### 17281#       发表于 2020-11-25 11:37
@@ -9576,7 +9576,7 @@ https://b23.tv/to4fHG
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">同样是播不了心爱的游戏，有的人就可以做到愤而离职
 
 
------
+*****
 
 ####  Ronso  
 ##### 17282#       发表于 2020-11-25 11:39
@@ -9585,7 +9585,7 @@ https://b23.tv/to4fHG
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">嘻嘻
 
 
------
+*****
 
 ####  yinoh  
 ##### 17283#       发表于 2020-11-25 11:39
@@ -9594,7 +9594,7 @@ https://b23.tv/to4fHG
 熊猫人那时候是被连根拔了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17284#       发表于 2020-11-25 11:41
@@ -9605,7 +9605,7 @@ hh也挺早，还一直是双推流
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17285#       发表于 2020-11-25 11:43
@@ -9614,7 +9614,7 @@ hh也挺早，还一直是双推流
 我到现在还是不相信熊猫人是因为玩不了任任才毕业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17286#       发表于 2020-11-25 11:47
@@ -9623,7 +9623,7 @@ hh也挺早，还一直是双推流
 笹木毕业因为不仲，回归因为Nico老人会
 
 
------
+*****
 
 ####  0WHan0  
 ##### 17287#       发表于 2020-11-25 11:54
@@ -9636,7 +9636,7 @@ lga蝗楼懂哥有一套他们完整理论的
 最早就把diazepam等设为封禁关键词很难不这么联想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  proxima  
 ##### 17288#       发表于 2020-11-25 11:56
@@ -9648,7 +9648,7 @@ lga蝗楼懂哥有一套他们完整理论的
 日本人bv不分岂不是变成了美少女<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  free  
 ##### 17289#       发表于 2020-11-25 12:00
@@ -9657,7 +9657,7 @@ lga蝗楼懂哥有一套他们完整理论的
 垃圾圆脸，有人会买吗，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 17290#       发表于 2020-11-25 12:00
@@ -9668,7 +9668,7 @@ lga蝗楼懂哥有一套他们完整理论的
 初见，可爱，单推，结婚
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17291#       发表于 2020-11-25 12:02
@@ -9677,7 +9677,7 @@ lga蝗楼懂哥有一套他们完整理论的
 大部分人，包括国人和日本人，说英语都一股大妈味，但是Nyanners就很可爱，她的塔也挺可爱的
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17292#       发表于 2020-11-25 12:03
@@ -9686,7 +9686,7 @@ lga蝗楼懂哥有一套他们完整理论的
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Hemis  
 ##### 17293#       发表于 2020-11-25 12:07
@@ -9695,7 +9695,7 @@ lga蝗楼懂哥有一套他们完整理论的
 免费不黑屁楼主了？不习惯，嘻嘻
 
 
------
+*****
 
 ####  突然空虚  
 ##### 17294#       发表于 2020-11-25 12:17
@@ -9704,7 +9704,7 @@ lga蝗楼懂哥有一套他们完整理论的
 要叫小免。人家经历过起落，已经不在意楼宝了
 
 
------
+*****
 
 ####  Mafise  
 ##### 17295#       发表于 2020-11-25 12:18
@@ -9718,7 +9718,7 @@ https://b23.tv/to4fHG</blockquote>
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  htgz111  
 ##### 17296#       发表于 2020-11-25 12:19
@@ -9727,7 +9727,7 @@ https://b23.tv/to4fHG</blockquote>
 不会真有人觉得笹木仰卧起坐和任天堂有一毛钱关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17297#       发表于 2020-11-25 12:19
@@ -9738,7 +9738,7 @@ https://b23.tv/to4fHG</blockquote>
 nyanner那种高鼻梁怎么想都不是亚细亚人吧。
 
 
------
+*****
 
 ####  mus2012  
 ##### 17298#       发表于 2020-11-25 12:25
@@ -9747,7 +9747,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。
 vshojo这个不是美国本土势力么？
 
 
------
+*****
 
 ####  Suny08  
 ##### 17299#       发表于 2020-11-25 12:25
@@ -9756,7 +9756,7 @@ vshojo这个不是美国本土势力么？
 白皮对自己的国v态度怎么样，和国内一样的么
 
 
------
+*****
 
 ####  耻照  
 ##### 17300#       发表于 2020-11-25 12:32
@@ -9765,7 +9765,7 @@ vshojo这个不是美国本土势力么？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自从之前楼里黑屁木口虚位以待紧接着彩虹官宣播任女孩表忠后我真的这么觉得了
 
 
------
+*****
 
 ####  aele  
 ##### 17301#       发表于 2020-11-25 12:34
@@ -9776,7 +9776,7 @@ vshojo这个不是美国本土势力么？
 黑鲨鱼和pikamee都三十多万了。比pxj友好太多
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17302#       发表于 2020-11-25 12:36
@@ -9787,7 +9787,7 @@ vshojo这个不是美国本土势力么？
 vshojo这人设真不错，还有头上顶fuck的
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17303#       发表于 2020-11-25 12:36
@@ -9799,7 +9799,7 @@ vshojo这人设真不错，还有头上顶fuck的
 黑鲨鱼真的挺好的
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17304#       发表于 2020-11-25 12:36
@@ -9811,7 +9811,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 我也没说她是东亚人啊……
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17305#       发表于 2020-11-25 12:37
@@ -9820,7 +9820,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 国内主播比v发达的多啊。。
 
 
------
+*****
 
 ####  asdhai  
 ##### 17306#       发表于 2020-11-25 12:38
@@ -9829,7 +9829,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 吓得我去看了眼节奏榜，黑鲨鱼这不是还没15w嘛。我还以为一天涨了15w。
 
 
------
+*****
 
 ####  Vneet  
 ##### 17307#       发表于 2020-11-25 12:39
@@ -9840,7 +9840,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 盲生你看穿了华点…
 
 
------
+*****
 
 ####  proxima  
 ##### 17308#       发表于 2020-11-25 12:40
@@ -9849,7 +9849,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 刘皇叔怎么能算白皮自己的v啊，不应该是算到特攻yhm吗
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17309#       发表于 2020-11-25 12:42
@@ -9859,7 +9859,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 不用上班不用直播，天天推特舔好男好女，看着真舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  katern  
 ##### 17310#       发表于 2020-11-25 12:51
@@ -9868,7 +9868,7 @@ nyanner那种高鼻梁怎么想都不是亚细亚人吧。</blockquote>
 yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w订阅v弹唱回都能拿几千刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  狸狸狐  
 ##### 17311#       发表于 2020-11-25 12:56
@@ -9877,7 +9877,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 是melody，好耶。两栖发展也别忘了继续回海里看看啊。
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 17312#       发表于 2020-11-25 12:58
@@ -9888,7 +9888,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 你拿英语圈头部比国v底边吗
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17313#       发表于 2020-11-25 13:00
@@ -9897,7 +9897,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 二次元英语社区英配党一直都占优势啊:^)反观cn，除了分不清咸淡的小学生没几个看配音版的
 
 
------
+*****
 
 ####  某穆克拉  
 ##### 17314#       发表于 2020-11-25 13:01
@@ -9916,7 +9916,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 谁说白皮不打钱的，时机未到罢了，
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17315#       发表于 2020-11-25 13:01
@@ -9925,7 +9925,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 国v顶流主战场都不在b站的。
 
 
------
+*****
 
 ####  过不了审  
 ##### 17316#       发表于 2020-11-25 13:08
@@ -9936,7 +9936,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 体感这次是CA的胜利
 
 
------
+*****
 
 ####  nowaki  
 ##### 17317#       发表于 2020-11-25 13:09
@@ -9945,7 +9945,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 北美南征北战，鲨皇还在那拱火，心里美滋滋
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17318#       发表于 2020-11-25 13:22
@@ -9964,7 +9964,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 2020-11-25 13:22 上传
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17319#       发表于 2020-11-25 13:32
@@ -9973,7 +9973,7 @@ yysy，虽然经常嘲白皮不打钱，但是特攻yhm还是挺吃香的，3w�
 y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 
 
------
+*****
 
 ####  Ronso  
 ##### 17320#       发表于 2020-11-25 13:43
@@ -9986,7 +9986,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 02姐姐是不是不看是中之人号还是皮套号，随机在这俩号上面发推啊，感觉没有规律，这就是最自由的管人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 17321#       发表于 2020-11-25 13:50
@@ -9995,7 +9995,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">和kr的同事联动吧 
 
 
------
+*****
 
 ####  Hemis  
 ##### 17322#       发表于 2020-11-25 13:59
@@ -10008,7 +10008,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 感觉可能需要拿魂号刷推（皮号关注实在太多了），皮号就是拿来互动了
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 17323#       发表于 2020-11-25 14:37
@@ -10017,7 +10017,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 这才出多久就挖出塔了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17324#       发表于 2020-11-25 14:40
@@ -10026,7 +10026,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 也许和阿葵一样喜欢韩国人吧
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17325#       发表于 2020-11-25 14:57
@@ -10037,7 +10037,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 全自动实名上网，皮号挂魂号链接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 17326#       发表于 2020-11-25 14:59
@@ -10049,7 +10049,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 魂皮一体的，直播里都报过名字了
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17327#       发表于 2020-11-25 15:03
@@ -10058,7 +10058,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 最近可能原神玩多了，昨晚上做梦梦见玩APEX选了一个莫娜，开局跳伞后用莫桑比克打死一个可莉
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17328#       发表于 2020-11-25 15:14
@@ -10067,7 +10067,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 不过02姐姑且还是会稍微RP一下的，那天直播有人直球美慧姐晚上好还好好提醒弹幕是月灵了的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17329#       发表于 2020-11-25 15:33
@@ -10086,7 +10086,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 这样也能算是虚拟管人阿？
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17330#       发表于 2020-11-25 15:35
@@ -10095,7 +10095,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 曼妥思+可乐，不会死吗
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17331#       发表于 2020-11-25 15:45
@@ -10110,7 +10110,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 太不仲了，刺激
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17332#       发表于 2020-11-25 15:45
@@ -10121,7 +10121,7 @@ y1s1，看起来就韩国人最费拉不堪，hana搞这个是图什么，
 我们虚拟管人喝的是虚拟曼妥思可乐，和你们三次元人类有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  poipanchao  
 ##### 17333#       发表于 2020-11-25 15:46
@@ -10131,7 +10131,7 @@ gamers要的就是这种不仲味
 我看你是完全不懂啊
 
 
------
+*****
 
 ####  yla  
 ##### 17334#       发表于 2020-11-25 15:48
@@ -10140,7 +10140,7 @@ gamers要的就是这种不仲味
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">雪山狼人组不是要搞宇宙狼人了么
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17335#       发表于 2020-11-25 15:55
@@ -10152,7 +10152,7 @@ gamers要的就是这种不仲味
 还是雪山人狼组适合老子.jpg
 
 
------
+*****
 
 ####  Porsche  
 ##### 17336#       发表于 2020-11-25 15:57
@@ -10165,7 +10165,7 @@ gamers要的就是这种不仲味
 老爱就算了吧，ai-channel搬运这id一点印象都没了？
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17337#       发表于 2020-11-25 15:58
@@ -10177,7 +10177,7 @@ gamers要的就是这种不仲味
 和元gamers一起玩的你——<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Yinacona  
 ##### 17338#       发表于 2020-11-25 16:00
@@ -10186,7 +10186,7 @@ gamers要的就是这种不仲味
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起之前看见过一个gif，一个外国女人往可乐里加曼妥思想用嘴巴堵住，结果从鼻子里全喷了出来
 
 
------
+*****
 
 ####  Mafise  
 ##### 17339#       发表于 2020-11-25 16:05
@@ -10197,7 +10197,7 @@ gamers要的就是这种不仲味
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17340#       发表于 2020-11-25 16:11
@@ -10245,7 +10245,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 <img src="https://img.saraba1st.com/forum/202011/25/161150vcmbc82uueeuu0zx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17341#       发表于 2020-11-25 16:34
@@ -10257,7 +10257,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 给大伙评测一下这酒怎么样
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17342#       发表于 2020-11-25 16:35
@@ -10306,7 +10306,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 [https://www.youtube.com/watch?v=B8jVewlzvL8](https://www.youtube.com/watch?v=B8jVewlzvL8)
 
 
------
+*****
 
 ####  死体残留  
 ##### 17343#       发表于 2020-11-25 16:36
@@ -10315,7 +10315,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩虹和读卖乐园做了个app，感觉这个是长期工商，去年三家联动现在就只剩彩虹做下去了
 
 
------
+*****
 
 ####  yla  
 ##### 17344#       发表于 2020-11-25 16:38
@@ -10324,7 +10324,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阿委和皇女昨天巡视虹服应该去看皇女视角，一路上疯狂截图，各种迷妹行为
 
 
------
+*****
 
 ####  Vneet  
 ##### 17345#       发表于 2020-11-25 16:39
@@ -10333,7 +10333,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 苍树梅的兔子可爱。
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 17346#       发表于 2020-11-25 16:42
@@ -10342,7 +10342,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 啊？天皇原来不是黑称吗？
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17347#       发表于 2020-11-25 16:42
@@ -10351,7 +10351,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 好活
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17348#       发表于 2020-11-25 16:43
@@ -10360,7 +10360,7 @@ DF351795-E604-47C7-8256-23889C403759.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜了，天皇和唯一指定皇子的马上就要被手持“弑君之刃”的吸血鬼斩杀了，
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17349#       发表于 2020-11-25 16:44
@@ -10388,7 +10388,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 2020-11-25 16:49 上传
 
 
------
+*****
 
 ####  ashero  
 ##### 17350#       发表于 2020-11-25 16:45
@@ -10404,7 +10404,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 是我想当然了 没想到始皇公式化比辉夜月晚那么多 当时还不怎么留意vtb
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17351#       发表于 2020-11-25 16:49
@@ -10414,7 +10414,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 怎么不讲讲这两人破音怪叫而且无安可啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17352#       发表于 2020-11-25 17:25
@@ -10423,7 +10423,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 看了一圈，好像梅酒里兔皇是卖得最贵滴
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17353#       发表于 2020-11-25 17:28
@@ -10434,7 +10434,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 现在叫x皇是看得起你
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17354#       发表于 2020-11-25 17:30
@@ -10446,7 +10446,7 @@ Zsyl，带新人巡视天皇皇后両陛下塑像，NTR啊<img src="https://stat
 syl 现在已经是皇级遍地走的时代了
 
 
------
+*****
 
 ####  pansherry  
 ##### 17355#       发表于 2020-11-25 17:30
@@ -10457,7 +10457,7 @@ syl 现在已经是皇级遍地走的时代了
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Porsche  
 ##### 17356#       发表于 2020-11-25 17:32
@@ -10481,7 +10481,7 @@ syl 现在已经是皇级遍地走的时代了
 查看全部评分
 
 
------
+*****
 
 ####  yla  
 ##### 17357#       发表于 2020-11-25 17:33
@@ -10490,7 +10490,7 @@ syl 现在已经是皇级遍地走的时代了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">天皇以前是5ch那边anti给的称呼啦
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17358#       发表于 2020-11-25 17:34
@@ -10499,7 +10499,7 @@ syl 现在已经是皇级遍地走的时代了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 时过境迁，天皇都是anti起的黑称了，
 
 
------
+*****
 
 ####  Nanachi  
 ##### 17359#       发表于 2020-11-25 17:34
@@ -10526,7 +10526,7 @@ syl 现在已经是皇级遍地走的时代了
 查看全部评分
 
 
------
+*****
 
 ####  yla  
 ##### 17360#       发表于 2020-11-25 17:38
@@ -10535,7 +10535,7 @@ syl 现在已经是皇级遍地走的时代了
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">诶？不，等等，天皇不是anti给黑称吗？
 
 
------
+*****
 
 ####  死体残留  
 ##### 17361#       发表于 2020-11-25 17:38
@@ -10544,7 +10544,7 @@ syl 现在已经是皇级遍地走的时代了
 holo这骰子是动画效果来的么
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17362#       发表于 2020-11-25 17:40
@@ -10554,7 +10554,7 @@ holo这骰子是动画效果来的么
 快召唤免费哥！！！
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17363#       发表于 2020-11-25 17:42
@@ -10565,7 +10565,7 @@ holo这骰子是动画效果来的么
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  walfeds  
 ##### 17364#       发表于 2020-11-25 17:44
@@ -10574,7 +10574,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这是要用麻将脸反攻nga吗
 
 
------
+*****
 
 ####  死体残留  
 ##### 17365#       发表于 2020-11-25 17:44
@@ -10583,7 +10583,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">狐皇主催吧，3d玩挺有趣的，不过这三就挺虚无的
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17366#       发表于 2020-11-25 17:46
@@ -10592,7 +10592,7 @@ holo这骰子是动画效果来的么
 你杏的产能问题，何时才能解决。
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17367#       发表于 2020-11-25 17:47
@@ -10601,7 +10601,7 @@ holo这骰子是动画效果来的么
 3d跑团没什么问题，但是看着这几个罚站一样跑团就很无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17368#       发表于 2020-11-25 17:49
@@ -10613,7 +10613,7 @@ holo这骰子是动画效果来的么
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17369#       发表于 2020-11-25 17:51
@@ -10622,7 +10622,7 @@ holo这骰子是动画效果来的么
 只要你杏脑死金游还有一堆人打钱的情况还在继续，他们就不可能做出任何改变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17370#       发表于 2020-11-25 17:58
@@ -10631,7 +10631,7 @@ holo这骰子是动画效果来的么
 看了下新闻床女士这live悬了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aele  
 ##### 17371#       发表于 2020-11-25 18:02
@@ -10640,7 +10640,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这仨人都能3d了。那486的3dlive准备拖到啥时候啊
 
 
------
+*****
 
 ####  walfeds  
 ##### 17372#       发表于 2020-11-25 18:03
@@ -10650,7 +10650,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这跑团也太虚无了
 
 
------
+*****
 
 ####  proxima  
 ##### 17373#       发表于 2020-11-25 18:04
@@ -10667,7 +10667,7 @@ holo这骰子是动画效果来的么
 哦，苔总今天还要庆祝漫画家九周年，那没事了，嘻嘻
 
 
------
+*****
 
 ####  Vneet  
 ##### 17374#       发表于 2020-11-25 18:13
@@ -10679,7 +10679,7 @@ holo这骰子是动画效果来的么
 确实，始皇的b站“公式化”已经是逼近百万闹出四分身搞网易爱后的事了，之前都是字幕组非公式支撑的。
 
 
------
+*****
 
 ####  TiHaru  
 ##### 17375#       发表于 2020-11-25 18:20
@@ -10688,7 +10688,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凛姨居然在b限，人气比平时转播还低一点
 
 
------
+*****
 
 ####  yla  
 ##### 17376#       发表于 2020-11-25 18:21
@@ -10697,7 +10697,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">凛仙贝B限纸人，最近点过去就看到FF14已经让我开始产生了只有B限时候才能看到凛仙贝正常直播的错觉了
 
 
------
+*****
 
 ####  千年流放  
 ##### 17377#       发表于 2020-11-25 18:29
@@ -10709,7 +10709,7 @@ holo这骰子是动画效果来的么
 她是下播前念sc的，多次被耐久留下。这种类型在B人气算法下挺吃亏。
 
 
------
+*****
 
 ####  死体残留  
 ##### 17378#       发表于 2020-11-25 18:32
@@ -10718,7 +10718,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">dayz 夜灯 ff14突出一个自由，玩恐怖游戏b限也太自由了，现在人气上12w也是可以了
 
 
------
+*****
 
 ####  MisForTunez  
 ##### 17379#       发表于 2020-11-25 18:32
@@ -10727,7 +10727,7 @@ holo这骰子是动画效果来的么
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你们一提我才想起来 鲨皇画师也是地狱萌音
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17380#       发表于 2020-11-25 18:40
@@ -10738,7 +10738,7 @@ holo这骰子是动画效果来的么
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17381#       发表于 2020-11-25 18:44
@@ -10747,7 +10747,7 @@ holo这骰子是动画效果来的么
 叔叔给你急三集的倍率高吧，我不信凛在b能打过三小姐
 
 
------
+*****
 
 ####  Miduki  
 ##### 17382#       发表于 2020-11-25 18:45
@@ -10756,7 +10756,7 @@ holo这骰子是动画效果来的么
 b站这一天火一个散装yhm么，今天又来一个新星姐<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17383#       发表于 2020-11-25 18:46
@@ -10765,7 +10765,7 @@ b站这一天火一个散装yhm么，今天又来一个新星姐<img src="https:
 鹰宫的原神转播前几天能做到22w人气，弹幕也挺热闹就是了，好像都挺爱看的
 
 
------
+*****
 
 ####  admentus  
 ##### 17384#       发表于 2020-11-25 18:50
@@ -10791,7 +10791,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 可惜国内买境外的酒有点难啊...
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17385#       发表于 2020-11-25 19:16
@@ -10800,7 +10800,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 甘城なつき的表情包还挺火的，到处有人用
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17386#       发表于 2020-11-25 19:17
@@ -10819,7 +10819,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 冲，装，死。感受同样的初动主流跟亚文化的差距
 
 
------
+*****
 
 ####  percy1234  
 ##### 17387#       发表于 2020-11-25 19:25
@@ -10830,7 +10830,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 凛今天b限竟然能有25w人气，弹幕也挺活跃的，虹人是不是该走进阳光了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17388#       发表于 2020-11-25 19:27
@@ -10839,7 +10839,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 这数字对比仿佛是杏和虹的同接一般，虹药丸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cgte030629  
 ##### 17389#       发表于 2020-11-25 19:27
@@ -10848,7 +10848,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 因为凛仙贝今天有尼姑庵引流啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  759465155  
 ##### 17390#       发表于 2020-11-25 19:29
@@ -10857,7 +10857,7 @@ syl,没想到不仅是个瓶子，居然酒的口味也是特别的
 nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17391#       发表于 2020-11-25 19:33
@@ -10866,7 +10866,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 三酱人气还是高啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  丿焰丶  
 ##### 17392#       发表于 2020-11-25 19:34
@@ -10877,7 +10877,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 有立本友人就能买了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 17393#       发表于 2020-11-25 19:40
@@ -10886,7 +10886,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 看样子rd二专只比一专好一点点
 
 
------
+*****
 
 ####  敖轩  
 ##### 17394#       发表于 2020-11-25 19:43
@@ -10897,7 +10897,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 好家伙，管人观众已经不满足于演喜剧、荒诞剧，开始演悬疑剧了？哈人。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17395#       发表于 2020-11-25 19:44
@@ -10911,7 +10911,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 大佬有愿意带酒回来的朋友可以介绍下吗？
 
 
------
+*****
 
 ####  icecry  
 ##### 17396#       发表于 2020-11-25 19:46
@@ -10922,7 +10922,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 金憨憨原神直播效果第一人，她熟肉切片现在都非常多
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17397#       发表于 2020-11-25 19:50
@@ -10935,7 +10935,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 咋，耻昏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17398#       发表于 2020-11-25 19:55
@@ -10944,7 +10944,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 支持郡道，与xjb用外来语的不良风气作斗争
 
 
------
+*****
 
 ####  NBXX  
 ##### 17399#       发表于 2020-11-25 19:55
@@ -10955,7 +10955,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 康娜原来也能跟色情系V搭上关系
 
 
------
+*****
 
 ####  丿焰丶  
 ##### 17400#       发表于 2020-11-25 19:57
@@ -10967,7 +10967,7 @@ nga那贴才3页，能引多少流，是叔叔调倍率了吧<img src="https://s
 syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17401#       发表于 2020-11-25 20:01
@@ -10978,7 +10978,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狐皇接到了魔界战记的工商（11.29晚八点），他爽该换头像了。
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17402#       发表于 2020-11-25 20:04
@@ -10989,7 +10989,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 啥玩意，手游吗，还是出新一坐了？
 
 
------
+*****
 
 ####  yla  
 ##### 17403#       发表于 2020-11-25 20:04
@@ -10998,7 +10998,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">oto加入了战斗，凛仙贝的人气第二位就要变成第三位了
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17404#       发表于 2020-11-25 20:06
@@ -11011,7 +11011,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 鬼束ちひろさんメドレー！大好きな曲、歌います 【エレクトーン弾き語り】
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17405#       发表于 2020-11-25 20:07
@@ -11023,7 +11023,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 就魔界战记rpg那个手游。
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17406#       发表于 2020-11-25 20:09
@@ -11034,7 +11034,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17407#       发表于 2020-11-25 20:13
@@ -11046,7 +11046,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为原神就是很火啊。。。
 
 
------
+*****
 
 ####  死体残留  
 ##### 17408#       发表于 2020-11-25 20:26
@@ -11055,7 +11055,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">魔界战记那个手游原来还没死啊
 
 
------
+*****
 
 ####  Junchoon  
 ##### 17409#       发表于 2020-11-25 20:32
@@ -11064,7 +11064,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 日本一这几年怎么挺过来的真是个迷，之前熬不住的时候好像还折价发行股票来着，记不得了......
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17410#       发表于 2020-11-25 20:36
@@ -11076,7 +11076,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 ゼルダいくか！！！！！！
 
 
------
+*****
 
 ####  Aminor  
 ##### 17411#       发表于 2020-11-25 20:41
@@ -11095,7 +11095,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 昨天的直播早上的切片，现在5w播放了，米忽悠快给大小姐一个工商吧
 
 
------
+*****
 
 ####  Junchoon  
 ##### 17412#       发表于 2020-11-25 20:44
@@ -11110,7 +11110,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 谁在播塞尔达？这种黄金时间段播塞尔达这位大概不在意播放数据吧......
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17413#       发表于 2020-11-25 20:45
@@ -11119,7 +11119,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 阿菜t台动了[https://twitcasting.tv/warabeda_meiji](https://twitcasting.tv/warabeda_meiji)
 
 
------
+*****
 
 ####  walfeds  
 ##### 17414#       发表于 2020-11-25 20:47
@@ -11129,7 +11129,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 [https://www.youtube.com/watch?v=Jygd0dmH1bs](https://www.youtube.com/watch?v=Jygd0dmH1bs)
 
 
------
+*****
 
 ####  cgte030629  
 ##### 17415#       发表于 2020-11-25 20:47
@@ -11138,7 +11138,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 现在b站唯一真神只有耳朵，只要开台就全干碎，赤神都差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17416#       发表于 2020-11-25 20:50
@@ -11147,7 +11147,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 红团长印象中现在不是开播就V区霸榜么，这都被干碎了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NBXX  
 ##### 17417#       发表于 2020-11-25 20:51
@@ -11175,7 +11175,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 查看全部评分
 
 
------
+*****
 
 ####  Junchoon  
 ##### 17418#       发表于 2020-11-25 20:53
@@ -11187,7 +11187,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 你理他就输了......
 
 
------
+*****
 
 ####  フミさん  
 ##### 17419#       发表于 2020-11-25 21:01
@@ -11196,7 +11196,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团长直播间里幻士们等不到团长开播都私自下棋了
 
 
------
+*****
 
 ####  敖轩  
 ##### 17420#       发表于 2020-11-25 21:26
@@ -11209,7 +11209,7 @@ syl，任你购可能能买<img src="https://static.saraba1st.com/image/smiley/f
 今天还会有和小免的对线环节吗？
 
 
------
+*****
 
 ####  walfeds  
 ##### 17421#       发表于 2020-11-25 21:27
@@ -11220,7 +11220,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 顺便今天是椎名林檎的生日还行
 
 
------
+*****
 
 ####  maifueller  
 ##### 17422#       发表于 2020-11-25 21:29
@@ -11231,7 +11231,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17423#       发表于 2020-11-25 21:32
@@ -11240,7 +11240,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 录播都还没看完<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17424#       发表于 2020-11-25 21:37
@@ -11256,7 +11256,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 [https://www.youtube.com/watch?v=vFyHl9uf1VE&amp;feature=youtu.be](https://www.youtube.com/watch?v=vFyHl9uf1VE&amp;feature=youtu.be)
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17425#       发表于 2020-11-25 21:40
@@ -11265,7 +11265,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 阿菜，我的阿菜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  某穆克拉  
 ##### 17426#       发表于 2020-11-25 21:41
@@ -11274,7 +11274,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 天宝耻辱下播1/1
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17427#       发表于 2020-11-25 21:50
@@ -11285,7 +11285,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 感觉是有直播意愿的...吧，夸专辑夸jin夸rd每个成员，说希望粉丝还来看她之后的直播，但就是播不了，不安desu
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17428#       发表于 2020-11-25 21:56
@@ -11294,7 +11294,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 希望阿菜身体快点好起来<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17429#       发表于 2020-11-25 21:58
@@ -11303,7 +11303,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 不是喉咙的话是肺，那更加可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17430#       发表于 2020-11-25 21:58
@@ -11312,7 +11312,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 一直冤枉阿菜了，希望身体好起来再想别的事
 
 
------
+*****
 
 ####  caupollen  
 ##### 17431#       发表于 2020-11-25 22:00
@@ -11321,7 +11321,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 克指导弹幕互动量把樱花妹都爆了。国v崛起
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17432#       发表于 2020-11-25 22:01
@@ -11332,7 +11332,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17433#       发表于 2020-11-25 22:02
@@ -11341,7 +11341,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 希望阿菜没事
 
 
------
+*****
 
 ####  fromsaitama  
 ##### 17434#       发表于 2020-11-25 22:07
@@ -11365,7 +11365,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 查看全部评分
 
 
------
+*****
 
 ####  asdhai  
 ##### 17435#       发表于 2020-11-25 22:09
@@ -11374,7 +11374,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 鸭唱炎的时候一个叫炼狱杏寿郎的加了会员，笑死。
 
 
------
+*****
 
 ####  admentus  
 ##### 17436#       发表于 2020-11-25 22:13
@@ -11402,7 +11402,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 2020-11-25 22:09 上传
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17437#       发表于 2020-11-25 22:17
@@ -11411,7 +11411,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 宣传一下很正常吧，更何况有旗下艺人参与，怎么能叫蹭
 
 
------
+*****
 
 ####  admentus  
 ##### 17438#       发表于 2020-11-25 22:21
@@ -11423,7 +11423,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 这谷子就是直接把梅酒联动的画拿来做了，真就0付出躺着挣钱
 
 
------
+*****
 
 ####  空集  
 ##### 17439#       发表于 2020-11-25 22:22
@@ -11436,7 +11436,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 最新推文：・・・・・・・・・・・・・・・・・・・・・・・・・・・・
 
 
------
+*****
 
 ####  admentus  
 ##### 17440#       发表于 2020-11-25 22:39
@@ -11445,7 +11445,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 兔子二十分钟后播dbd
 
 
------
+*****
 
 ####  TiHaru  
 ##### 17441#       发表于 2020-11-25 22:39
@@ -11464,7 +11464,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Obey-then-die  
 ##### 17442#       发表于 2020-11-25 22:39
@@ -11473,7 +11473,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 克总这忘忧草<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17443#       发表于 2020-11-25 22:40
@@ -11482,7 +11482,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 阿船你夜な夜な夜な这种歌只在会限挑战挑战确实还挺有自知之明的，本身也唱不高 ，低的部分也拉的吓人
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17444#       发表于 2020-11-25 22:40
@@ -11492,7 +11492,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17445#       发表于 2020-11-25 22:41
@@ -11501,7 +11501,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 维阿怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17446#       发表于 2020-11-25 22:44
@@ -11510,7 +11510,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17447#       发表于 2020-11-25 22:45
@@ -11519,7 +11519,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 とこまち这电台我是真的听不下去了，万物一转梦幻偶像祭，乐元素快把FH女主播的账号ban了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17448#       发表于 2020-11-25 22:46
@@ -11528,7 +11528,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17449#       发表于 2020-11-25 22:48
@@ -11540,7 +11540,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 青空のラプソディ (Aozora no Rhapsody) - fhána // covered by 松永依織
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17450#       发表于 2020-11-25 22:50
@@ -11551,7 +11551,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  walfeds  
 ##### 17451#       发表于 2020-11-25 22:51
@@ -11560,7 +11560,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太怪了
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17452#       发表于 2020-11-25 22:51
@@ -11569,7 +11569,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 维阿该怎么办就怎么办呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17453#       发表于 2020-11-25 22:55
@@ -11578,7 +11578,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 去这个A-SOUL的宣发下看了一眼，好家伙评论区全是要求把钱拿去给王一博换摄影师的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  兄啊你好几把怪  
 ##### 17454#       发表于 2020-11-25 23:04
@@ -11590,7 +11590,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 在时隔新衣装一周年能想起把半年前开坑的游戏填上的叶师傅真是亚撒西呢<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MKHINSSS  
 ##### 17455#       发表于 2020-11-25 23:13
@@ -11599,7 +11599,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 编辑，回错楼
 
 
------
+*****
 
 ####  Suny08  
 ##### 17456#       发表于 2020-11-25 23:14
@@ -11608,7 +11608,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 小红和千麻怎么和鹿乃阿姨玩到一起了啊，是以后准备一起发歌么
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17457#       发表于 2020-11-25 23:31
@@ -11638,7 +11638,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 查看全部评分
 
 
------
+*****
 
 ####  †バンシー†  
 ##### 17458#       发表于 2020-11-25 23:34
@@ -11648,7 +11648,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 你 们 又 能 怎 么 的
 
 
------
+*****
 
 ####  admentus  
 ##### 17459#       发表于 2020-11-25 23:35
@@ -11664,7 +11664,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 然后杏星的下场...
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17460#       发表于 2020-11-25 23:36
@@ -11674,7 +11674,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 我命令月之立刻开会限播女友角色扮演asmr<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17461#       发表于 2020-11-25 23:40
@@ -11683,7 +11683,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 别学黑宝，非要把自己的智商拉到和黑宝一个水平才能和女粉战斗吗。
 
 
------
+*****
 
 ####  空集  
 ##### 17462#       发表于 2020-11-25 23:47
@@ -11694,7 +11694,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 船长：太高了 唱不来唱不来   
 
 
------
+*****
 
 ####  敖轩  
 ##### 17463#       发表于 2020-11-25 23:50
@@ -11705,7 +11705,7 @@ HACHI说10年里患过三次没法说话级别的重感冒变过三次声线，�
 HACHI昨天的恐山revoir
 
 
------
+*****
 
 ####  cckuku  
 ##### 17464#       发表于 2020-11-25 23:54
@@ -11714,7 +11714,7 @@ HACHI昨天的恐山revoir
 嗯？雪宝的这个直播会不会被炎上啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么敢在直播中唱vtl？
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17465#       发表于 2020-11-26 00:11
@@ -11723,7 +11723,7 @@ HACHI昨天的恐山revoir
 唱vtl到底需要什么条件
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17466#       发表于 2020-11-26 00:18
@@ -11745,7 +11745,7 @@ QQ截图20201126001737.png
 <img src="https://img.saraba1st.com/forum/202011/26/001755kx5axsh3faopj3hp.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17467#       发表于 2020-11-26 00:19
@@ -11754,7 +11754,7 @@ QQ截图20201126001737.png
 杏星不是活的好好的吗？哪来什么下场之说。还有jp分社暴力引流，希望饭圈迷妹也能享受到玉米人般的待遇。
 
 
------
+*****
 
 ####  caupollen  
 ##### 17468#       发表于 2020-11-26 00:31
@@ -11763,7 +11763,7 @@ QQ截图20201126001737.png
 克指导又在劈小免了
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17469#       发表于 2020-11-26 00:31
@@ -11785,7 +11785,7 @@ HH新曲买好了，hina的部分比想象中占比多一点。
 意外的耐听，才听了三遍，刷牙的时候脑子里就在不停重复了。
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17470#       发表于 2020-11-26 00:32
@@ -11794,7 +11794,7 @@ HH新曲买好了，hina的部分比想象中占比多一点。
 圭利之前说了句“最近发生各种事，感觉在nijisanji实在太好了”，这个“各种事”应该包括镜见的事吧，说不定圭利知道内幕，镜见变反向mrr呢
 
 
------
+*****
 
 ####  空集  
 ##### 17471#       发表于 2020-11-26 00:46
@@ -11805,7 +11805,7 @@ HH新曲买好了，hina的部分比想象中占比多一点。
 syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， 咋说呢，虽然这个炎很小事做大文章，但是专门直接跳出别人的軽い気持ち 来说一下那个推特回应也实在想吐槽也太有个性了。
 
 
------
+*****
 
 ####  lhawp  
 ##### 17472#       发表于 2020-11-26 00:51
@@ -11814,7 +11814,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 小夜你在做什么啊小夜
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 17473#       发表于 2020-11-26 00:56
@@ -11832,7 +11832,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 2020-11-26 00:56 上传
 
 
------
+*****
 
 ####  stars  
 ##### 17474#       发表于 2020-11-26 01:01
@@ -11844,7 +11844,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  yla  
 ##### 17475#       发表于 2020-11-26 01:03
@@ -11853,7 +11853,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">每次听到恐山ル・ヴォワール就会想起武井个傻缺。明年新动画上了后估计我就能断了念想了。
 
 
------
+*****
 
 ####  stars  
 ##### 17476#       发表于 2020-11-26 01:04
@@ -11864,7 +11864,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  好德我基  
 ##### 17477#       发表于 2020-11-26 01:10
@@ -11873,7 +11873,7 @@ syl  看colo综那个小熊猫因为軽い気持ち被炎 还挺草生的， �
 kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐知道有什么前兆吗。
 
 
------
+*****
 
 ####  stars  
 ##### 17478#       发表于 2020-11-26 01:12
@@ -11884,7 +11884,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  死体残留  
 ##### 17479#       发表于 2020-11-26 01:15
@@ -11893,7 +11893,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">黑人和星有什么瓜么
 
 
------
+*****
 
 ####  stars  
 ##### 17480#       发表于 2020-11-26 01:15
@@ -11905,7 +11905,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  stars  
 ##### 17481#       发表于 2020-11-26 01:18
@@ -11917,7 +11917,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  stars  
 ##### 17482#       发表于 2020-11-26 01:20
@@ -11928,7 +11928,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17483#       发表于 2020-11-26 01:30
@@ -11938,7 +11938,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 ，不过我看萝卜魂号直球说喜欢玩都没播。。
 
 
------
+*****
 
 ####  asdhai  
 ##### 17484#       发表于 2020-11-26 01:35
@@ -11947,7 +11947,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 虽然我也不懂伪娘和司仪有啥关系。不过杏星老姐的怒涛连击挺吓人的。
 
 
------
+*****
 
 ####  admentus  
 ##### 17485#       发表于 2020-11-26 01:37
@@ -11971,7 +11971,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 眠了
 
 
------
+*****
 
 ####  Abyssmarionette  
 ##### 17486#       发表于 2020-11-26 01:56
@@ -11980,7 +11980,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 草，白上关注了一个推特下发塔的乐子人，这波是手滑还是狐学
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17487#       发表于 2020-11-26 01:58
@@ -11989,7 +11989,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 黑哥的一人成军整活vtl都已经上了3JK节目获得钦点了，是天皇亲手送vtl走下神坛惠及全社<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  三种人  
 ##### 17488#       发表于 2020-11-26 02:03
@@ -12000,7 +12000,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 [https://egg.5ch.net/test/read.cgi/streaming/1603384247/148](https://egg.5ch.net/test/read.cgi/streaming/1603384247/148)如果司会是被木口星80走的事是真的，那kira和司会有联系也当然是真的咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  noHentai  
 ##### 17489#       发表于 2020-11-26 02:14
@@ -12024,7 +12024,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 查看全部评分
 
 
------
+*****
 
 ####  cckuku  
 ##### 17490#       发表于 2020-11-26 02:15
@@ -12033,7 +12033,7 @@ kira这个毕业就挺突然的，记得前一天还在正常发推，star老姐
 v综星粉都那么魔怔的吗？想问问v综有没有正常的星粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17491#       发表于 2020-11-26 02:15
@@ -12044,7 +12044,7 @@ v综星粉都那么魔怔的吗？想问问v综有没有正常的星粉啊<img s
 这人最早在v综的屁股是crew，然后有退综一段时间，现在不知道了
 
 
------
+*****
 
 ####  proxima  
 ##### 17492#       发表于 2020-11-26 02:18
@@ -12053,7 +12053,7 @@ v综星粉都那么魔怔的吗？想问问v综有没有正常的星粉啊<img s
 正常人谁看星还到v综来找场子啊
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17493#       发表于 2020-11-26 03:06
@@ -12062,7 +12062,7 @@ v综星粉都那么魔怔的吗？想问问v综有没有正常的星粉啊<img s
 金憨憨b站 9w9了
 
 
------
+*****
 
 ####  滑稽Captain  
 ##### 17494#       发表于 2020-11-26 03:15
@@ -12074,7 +12074,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 这个五字，先端？先端和ムラタ有严重矛盾吗
 
 
------
+*****
 
 ####  空集  
 ##### 17495#       发表于 2020-11-26 04:07
@@ -12085,7 +12085,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  BonkoraKKK  
 ##### 17496#       发表于 2020-11-26 04:18
@@ -12096,7 +12096,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 那怀疑司会有所指也不算凭空猜测的
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17497#       发表于 2020-11-26 06:40
@@ -12105,7 +12105,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 你杏终于还是向科乐美投降了，那能在冬天来场甲子园吗2333。
 
 
------
+*****
 
 ####  Obey-then-die  
 ##### 17498#       发表于 2020-11-26 07:49
@@ -12114,7 +12114,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 这暗夜精灵怎么都跑NGA专楼拿麻将脸发情去了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TRW  
 ##### 17499#       发表于 2020-11-26 07:56
@@ -12123,7 +12123,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 原来虹人只能在专楼啊，那得换个推盾，以后我就是星粉了
 
 
------
+*****
 
 ####  死体残留  
 ##### 17500#       发表于 2020-11-26 08:19
@@ -12132,7 +12132,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">终于拿到konami版权了么 你急三级的末日到了
 
 
------
+*****
 
 ####  2L模仿47哥  
 ##### 17501#       发表于 2020-11-26 08:21
@@ -12141,7 +12141,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 杏星粉好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  losm  
 ##### 17502#       发表于 2020-11-26 08:33
@@ -12152,7 +12152,7 @@ https://egg.5ch.net/test/read.cgi/streaming/1603384247/148如果司会是被木�
 看了下居然是真的，虽然九成是手滑但也太乐了
 
 
------
+*****
 
 ####  フミさん  
 ##### 17503#       发表于 2020-11-26 08:43
@@ -12175,7 +12175,7 @@ image.jpg
 <img src="https://img.saraba1st.com/forum/202011/26/084348tvayv6iry69zhkdu.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AloissiolA  
 ##### 17504#       发表于 2020-11-26 09:01
@@ -12199,7 +12199,7 @@ image.jpg
 2020-11-26 09:02 上传
 
 
------
+*****
 
 ####  AloissiolA  
 ##### 17505#       发表于 2020-11-26 09:10
@@ -12210,7 +12210,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">星粉把一个怎么看都不怎么看虹的人开除虹粉籍，太牛了，这就是武德吗
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17506#       发表于 2020-11-26 09:10
@@ -12219,7 +12219,7 @@ image.jpg
 就唱了一半<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 17507#       发表于 2020-11-26 09:44
@@ -12228,7 +12228,7 @@ image.jpg
 兔妈推特说兔宝胸部鼠标垫再贩了，11月26日0：00
 
 
------
+*****
 
 ####  stedckk  
 ##### 17508#       发表于 2020-11-26 09:48
@@ -12237,7 +12237,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把这人当成虹人，感觉就跟把现在天天拿杏踩虹的某人当成杏人一样。
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17509#       发表于 2020-11-26 09:50
@@ -12246,7 +12246,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">星粉武德丰沛，我寻思我也没辱星啊，撤了
 
 
------
+*****
 
 ####  Suny08  
 ##### 17510#       发表于 2020-11-26 09:53
@@ -12255,7 +12255,7 @@ image.jpg
 所以杏拿到科乐美版权之后是不是可以开始奶杏棒多少人看了，这波大招是不是可以冲上25万
 
 
------
+*****
 
 ####  空集  
 ##### 17511#       发表于 2020-11-26 09:55
@@ -12264,7 +12264,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 杏棒不会有的 1. 人太少 不够分队  2. 会玩的太少几乎没有 3. 没人说科乐美全拿到了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17512#       发表于 2020-11-26 09:59
@@ -12273,7 +12273,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 三期桃铁至少20w起步吧
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17513#       发表于 2020-11-26 09:59
@@ -12282,7 +12282,7 @@ image.jpg
 棒球那日常 我一个不懂日语的 看着头疼 不符合en进出大方针啊
 
 
------
+*****
 
 ####  nowaki  
 ##### 17514#       发表于 2020-11-26 10:00
@@ -12291,7 +12291,7 @@ image.jpg
 你杏不播棒球更多是自知超不过19w这个数字好吧，嘻嘻
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17515#       发表于 2020-11-26 10:01
@@ -12300,7 +12300,7 @@ image.jpg
 棒球白皮也挺火的啊
 
 
------
+*****
 
 ####  asdhai  
 ##### 17516#       发表于 2020-11-26 10:03
@@ -12309,7 +12309,7 @@ image.jpg
 版权八字还没一撇就开始发散了
 
 
------
+*****
 
 ####  Suny08  
 ##### 17517#       发表于 2020-11-26 10:05
@@ -12318,7 +12318,7 @@ image.jpg
 就一个游戏不需要得懂棒球知识才玩啊，夜见就因为虹棒才知道有这游戏才开始玩的，规则除了三振啥都不知道，一样沉迷的一逼，游戏里都玩了7年了
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17518#       发表于 2020-11-26 10:08
@@ -12327,7 +12327,7 @@ image.jpg
 我打了三遍LB，还是不知道棒球的规则
 
 
------
+*****
 
 ####  jk9hot  
 ##### 17519#       发表于 2020-11-26 10:11
@@ -12338,7 +12338,7 @@ image.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Suny08  
 ##### 17520#       发表于 2020-11-26 10:12
@@ -12349,7 +12349,7 @@ image.jpg
 2000又开始不基德了，三期桃铁到时候润gachi又要🥜😈了
 
 
------
+*****
 
 ####  katern  
 ##### 17521#       发表于 2020-11-26 10:40
@@ -12358,7 +12358,7 @@ image.jpg
 不如说棒球也就美国人和日本人玩的最多<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stars  
 ##### 17522#       发表于 2020-11-26 10:41
@@ -12370,7 +12370,7 @@ image.jpg
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  死体残留  
 ##### 17523#       发表于 2020-11-26 10:41
@@ -12379,7 +12379,7 @@ image.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">三期桃铁比大乱斗低一点吧保底7w还是有的，拿到桃铁holo就是无尽的桃铁live了
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17524#       发表于 2020-11-26 10:50
@@ -12390,7 +12390,7 @@ image.jpg
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Kanchiki  
 ##### 17525#       发表于 2020-11-26 10:51
@@ -12412,7 +12412,7 @@ DB5F61BA95C374AE05F652E7AA42F12F.jpg
 <img src="https://img.saraba1st.com/forum/202011/26/105050ldxm5imn2gkymigm.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17526#       发表于 2020-11-26 10:56
@@ -12421,7 +12421,7 @@ DB5F61BA95C374AE05F652E7AA42F12F.jpg
 小狐狸才是抗压王^_^
 
 
------
+*****
 
 ####  fangjun96  
 ##### 17527#       发表于 2020-11-26 10:57
@@ -12432,7 +12432,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 杏又武德了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">syl 狐皇关注你，就看你能整啥烂活，乐子人
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17528#       发表于 2020-11-26 10:58
@@ -12441,7 +12441,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a u hp。
 
 
------
+*****
 
 ####  yla  
 ##### 17529#       发表于 2020-11-26 10:59
@@ -12450,7 +12450,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说道棒球，今年虹甲的队伍数据是随时可以下载的还是限时的，现在还能下载的话我准备去买个2020来玩玩了
 
 
------
+*****
 
 ####  死体残留  
 ##### 17530#       发表于 2020-11-26 11:02
@@ -12461,7 +12461,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 随时，那个下载榜就是给玩家上传队伍给别人用赚金币
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17531#       发表于 2020-11-26 11:03
@@ -12472,7 +12472,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17532#       发表于 2020-11-26 11:05
@@ -12501,7 +12501,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 金银铜草
 
 
------
+*****
 
 ####  突然空虚  
 ##### 17533#       发表于 2020-11-26 11:06
@@ -12510,7 +12510,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 这是官方认证金银铜憨憨吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vneet  
 ##### 17534#       发表于 2020-11-26 11:07
@@ -12524,7 +12524,7 @@ rua 才知道桃铁是konami的啊<img src="https://static.saraba1st.com/image/s
 syl金银铜哈哈哈哈
 
 
------
+*****
 
 ####  死体残留  
 ##### 17535#       发表于 2020-11-26 11:10
@@ -12533,7 +12533,7 @@ syl金银铜哈哈哈哈
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">那个团大号直接拉过算社团吧，而且主混的也不是油管吧，对杏en威胁不大，反而另外层面帮holoen打了广告吧
 
 
------
+*****
 
 ####  yla  
 ##### 17536#       发表于 2020-11-26 11:14
@@ -12557,7 +12557,7 @@ syl金银铜哈哈哈哈
 查看全部评分
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17537#       发表于 2020-11-26 11:18
@@ -12566,7 +12566,7 @@ syl金银铜哈哈哈哈
 这三人从半年前联动开始就是官方自称金銀銅ポン的啊，楼友惊是为何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17538#       发表于 2020-11-26 11:21
@@ -12579,7 +12579,7 @@ syl金银铜哈哈哈哈
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17539#       发表于 2020-11-26 11:25
@@ -12588,7 +12588,7 @@ syl金银铜哈哈哈哈
 这live2d太菜了吧，不爱了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17540#       发表于 2020-11-26 11:26
@@ -12597,7 +12597,7 @@ syl金银铜哈哈哈哈
 这啥， 欧美特攻?
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17541#       发表于 2020-11-26 11:27
@@ -12606,7 +12606,7 @@ syl金银铜哈哈哈哈
 欧美自攻？
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17542#       发表于 2020-11-26 11:28
@@ -12618,7 +12618,7 @@ syl金银铜哈哈哈哈
 货不对板！退货啊！
 
 
------
+*****
 
 ####  Vneet  
 ##### 17543#       发表于 2020-11-26 11:29
@@ -12631,7 +12631,7 @@ syl金银铜哈哈哈哈
 就这类老带新的，除了两个头（粉毛与melody）有保证外，其他人就自求多福吧，看实物除了两个头其他人的确不太行。红色那个大头娃娃，蓝色那个胸比头大www
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17544#       发表于 2020-11-26 11:30
@@ -12640,7 +12640,7 @@ syl金银铜哈哈哈哈
 笑喷了，为啥在午饭时间放这个图
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17545#       发表于 2020-11-26 11:31
@@ -12649,7 +12649,7 @@ syl金银铜哈哈哈哈
 有点像熊猫网上看到的3d合集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17546#       发表于 2020-11-26 11:33
@@ -12658,7 +12658,7 @@ syl金银铜哈哈哈哈
 迪士尼味的3d也就罢了，白的创可贴换成黑的可还行
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17547#       发表于 2020-11-26 11:34
@@ -12667,7 +12667,7 @@ syl金银铜哈哈哈哈
 vshojo看起来结构很松散，算不算箱不好说
 
 
------
+*****
 
 ####  darkpiece365  
 ##### 17548#       发表于 2020-11-26 11:36
@@ -12676,7 +12676,7 @@ vshojo看起来结构很松散，算不算箱不好说
 黑色的创可贴看着跟小胡子似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 17549#       发表于 2020-11-26 11:38
@@ -12685,7 +12685,7 @@ vshojo看起来结构很松散，算不算箱不好说
 看这个我还不如去看ghs的mmd
 
 
------
+*****
 
 ####  空集  
 ##### 17550#       发表于 2020-11-26 11:45
@@ -12694,7 +12694,7 @@ vshojo看起来结构很松散，算不算箱不好说
 这种自带皮的联盟 看介绍的文 偏单纯支援性质 例如帮忙出周边 管理性质是几乎没有的  ，和企业势其实不是一种对抗关系。
 
 
------
+*****
 
 ####  TiHaru  
 ##### 17551#       发表于 2020-11-26 11:49
@@ -12703,7 +12703,7 @@ vshojo看起来结构很松散，算不算箱不好说
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">mkt真把北+干碎过？有没有人细说一下
 
 
------
+*****
 
 ####  辻君  
 ##### 17552#       发表于 2020-11-26 11:50
@@ -12714,7 +12714,7 @@ vshojo看起来结构很松散，算不算箱不好说
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  死体残留  
 ##### 17553#       发表于 2020-11-26 11:51
@@ -12723,7 +12723,7 @@ vshojo看起来结构很松散，算不算箱不好说
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那个红毛mouse是不是发情过虹男的那位？
 
 
------
+*****
 
 ####  与太郎  
 ##### 17554#       发表于 2020-11-26 11:53
@@ -12740,7 +12740,7 @@ vshojo看起来结构很松散，算不算箱不好说
 Silvervale的建模就离谱，把猫耳耳机做得像个角，和上面这个MMD比起来实在让人无法直视
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 17555#       发表于 2020-11-26 11:54
@@ -12750,7 +12750,7 @@ Silvervale的建模就离谱，把猫耳耳机做得像个角，和上面这个M
 [https://www.bilibili.com/video/BV12T4y1F72z](https://www.bilibili.com/video/BV12T4y1F72z)
 
 
------
+*****
 
 ####  死体残留  
 ##### 17556#       发表于 2020-11-26 11:56
@@ -12759,7 +12759,7 @@ Silvervale的建模就离谱，把猫耳耳机做得像个角，和上面这个M
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">听说这个vshojo运营不抽成，只抽周边销售分成一部分。这其实只能算社团吧，感觉产能比海苔箱还要低
 
 
------
+*****
 
 ####  过不了审  
 ##### 17557#       发表于 2020-11-26 11:57
@@ -12770,7 +12770,7 @@ Silvervale的建模就离谱，把猫耳耳机做得像个角，和上面这个M
 就我所知的一些欧美dd的观点来看，他们认为vshojo更像是nijien，可能意思是更有内涵有才艺更多元那种意思？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">当然也有认为是upd8那种性质的
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 17558#       发表于 2020-11-26 11:58
@@ -12785,7 +12785,7 @@ Silvervale的建模就离谱，把猫耳耳机做得像个角，和上面这个M
 不过星粉确实武德充沛。
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17559#       发表于 2020-11-26 12:04
@@ -12797,7 +12797,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 真的，有段时间搜不到mkt的任何资源
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17560#       发表于 2020-11-26 12:14
@@ -12806,7 +12806,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">vshojo这皮真能发展起来?
 
 
------
+*****
 
 ####  proxima  
 ##### 17561#       发表于 2020-11-26 12:37
@@ -12820,7 +12820,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 要是就帮忙卖卖周边的话岂不是比upd8还菜
 
 
------
+*****
 
 ####  奥尔斯蒂德  
 ##### 17562#       发表于 2020-11-26 13:03
@@ -12829,7 +12829,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">糊坦又把乐子人取关了
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17563#       发表于 2020-11-26 13:12
@@ -12838,7 +12838,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 想观察乐子人却被运营训斥<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17564#       发表于 2020-11-26 13:19
@@ -12847,7 +12847,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 狐坦:"差不多得了。"
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17565#       发表于 2020-11-26 13:27
@@ -12860,7 +12860,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 大概是你杏不行了
 
 
------
+*****
 
 ####  walfeds  
 ##### 17566#       发表于 2020-11-26 13:27
@@ -12871,7 +12871,7 @@ mkt真把北+干碎过？有没有人细说一下</blockquote>
 —— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17567#       发表于 2020-11-26 13:29
@@ -12881,7 +12881,7 @@ ww做的同接表
 <img src="https://p.sda1.dev/0/63359f905ee2e4938b204f9610028ca7/i.imgur.com_CW2Qqcy.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17568#       发表于 2020-11-26 13:31
@@ -12890,7 +12890,7 @@ ww做的同接表
 "乐子人...我的乐子人.."
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17569#       发表于 2020-11-26 13:42
@@ -12899,7 +12899,7 @@ ww做的同接表
 把乐子人取关之后又可以开开心心吃芝士蛋糕了💪🏻🦊
 
 
------
+*****
 
 ####  Vneet  
 ##### 17570#       发表于 2020-11-26 13:46
@@ -12914,7 +12914,7 @@ ww做的同接表</blockquote>
 …我记得上个月sc数据是首次下降，不知这个月还是不是继续下降。
 
 
------
+*****
 
 ####  ひびき  
 ##### 17571#       发表于 2020-11-26 13:47
@@ -12925,7 +12925,7 @@ ww做的同接表</blockquote>
 狐坦现在该多胖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 另外这个月为啥莫名涨了9000
 
 
------
+*****
 
 ####  大暗月  
 ##### 17572#       发表于 2020-11-26 13:54
@@ -12937,7 +12937,7 @@ ww做的同接表</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Suny08  
 ##### 17573#       发表于 2020-11-26 13:55
@@ -12946,7 +12946,7 @@ ww做的同接表</blockquote>
 hololive在en出了以后完全是指数级起飞了
 
 
------
+*****
 
 ####  AKili  
 ##### 17574#       发表于 2020-11-26 13:55
@@ -12955,7 +12955,7 @@ hololive在en出了以后完全是指数级起飞了
 白上同接涨最大原因不是因为她这个月没直播扭曲仙境吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17575#       发表于 2020-11-26 13:57
@@ -12964,7 +12964,7 @@ hololive在en出了以后完全是指数级起飞了
 这个月holo的sc现在已经超了上个月了吧，狐同接升高是这个月社内联动增多，前两个月狐基本是一天水几个没人看的
 
 
------
+*****
 
 ####  ひびき  
 ##### 17576#       发表于 2020-11-26 13:58
@@ -12979,7 +12979,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 哪个国内女团敢这么舔白皮怕不是公司都给扬咯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  当然想扬了木口的日本粉转黑也不少就是咯
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17577#       发表于 2020-11-26 13:59
@@ -12988,7 +12988,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 只播金游同接能不高吗
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17578#       发表于 2020-11-26 14:02
@@ -12997,7 +12997,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en出了以后指数级起飞，结果我船的同接最高记录是在8月，这就是被白皮厌恶的女人吗？就算你欧美进出再多次，也只会是一败涂地，嘻嘻。
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17579#       发表于 2020-11-26 14:07
@@ -13008,7 +13008,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Kanchiki  
 ##### 17580#       发表于 2020-11-26 14:16
@@ -13017,7 +13017,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 然而日本人巴不得脱亚入欧，慕洋性就是日本的国民性啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 17581#       发表于 2020-11-26 14:17
@@ -13031,7 +13031,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 这不是很正常吗，夜见出道一年半订阅数翻了5倍同接还一直都是4500-5000从来没变过呢
 
 
------
+*****
 
 ####  空集  
 ##### 17582#       发表于 2020-11-26 14:18
@@ -13042,7 +13042,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17583#       发表于 2020-11-26 14:22
@@ -13053,7 +13053,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 日韩小资不慕洋才有问题吧
 
 
------
+*****
 
 ####  CheshireK  
 ##### 17584#       发表于 2020-11-26 14:24
@@ -13065,7 +13065,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 现在群里交流资源一般都用c或m代指，sukebei上的资源也用c@n@n 和m@koto之类的防搜索
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 17585#       发表于 2020-11-26 14:26
@@ -13077,7 +13077,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 3. 大家都是跟风点的关注，但是看了几次直播就没兴趣了。同接看着没变，其实已经换了好几波人
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17586#       发表于 2020-11-26 14:37
@@ -13087,7 +13087,7 @@ hololive在en出了以后完全是指数级起飞了</blockquote>
 https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 
 
------
+*****
 
 ####  walfeds  
 ##### 17587#       发表于 2020-11-26 14:39
@@ -13098,7 +13098,7 @@ https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 —— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17588#       发表于 2020-11-26 14:42
@@ -13110,7 +13110,7 @@ https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 现在看来起码三分一的HOLO人是当年被他干过的
 
 
------
+*****
 
 ####  倒影_  
 ##### 17589#       发表于 2020-11-26 14:52
@@ -13119,7 +13119,7 @@ https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 醒醒，木口人没几个配和她对线的
 
 
------
+*****
 
 ####  空集  
 ##### 17590#       发表于 2020-11-26 14:54
@@ -13128,7 +13128,7 @@ https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然NGA这写的很好玩  但是其实MKT姐贵也就干了特定几个   什么三分之一 更是不只哪里得出来的  ， 本版也有MKT介绍帖
 
 
------
+*****
 
 ####  podball  
 ##### 17591#       发表于 2020-11-26 15:00
@@ -13137,7 +13137,7 @@ https://twitter.com/dotLIVEyoutuber/status/1331840107423223811?s=20
 ptr算吧
 
 
------
+*****
 
 ####  Suny08  
 ##### 17592#       发表于 2020-11-26 15:00
@@ -13146,7 +13146,7 @@ ptr算吧
 你虹后面招的熟练工一大半都是纯底边主播，跟这种大物完全比不了的
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17593#       发表于 2020-11-26 15:09
@@ -13165,7 +13165,7 @@ ptr算吧
 完全和其他人不是一个画风的椎名，
 
 
------
+*****
 
 ####  proxima  
 ##### 17594#       发表于 2020-11-26 15:14
@@ -13174,7 +13174,7 @@ ptr算吧
 mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17595#       发表于 2020-11-26 15:16
@@ -13183,7 +13183,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17596#       发表于 2020-11-26 15:23
@@ -13192,7 +13192,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 利香金主怎么说，这越播越少的，还不提桶跑路主流出道吗
 
 
------
+*****
 
 ####  矮矮人  
 ##### 17597#       发表于 2020-11-26 15:25
@@ -13201,7 +13201,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这么看🐉粽的人均打钱转化真高啊
 
 
------
+*****
 
 ####  空集  
 ##### 17598#       发表于 2020-11-26 15:28
@@ -13210,7 +13210,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里给你去主流出道  只有利香尺度越来越大 
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17599#       发表于 2020-11-26 15:30
@@ -13219,7 +13219,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 利香该找个男人结婚了
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17600#       发表于 2020-11-26 15:33
@@ -13231,7 +13231,7 @@ mkt姐贵只想过平静的生活，不想橄榄你们套皮主播
 konami不多整几个，太小气了！
 
 
------
+*****
 
 ####  十四洲  
 ##### 17601#       发表于 2020-11-26 15:43
@@ -13242,7 +13242,7 @@ konami不多整几个，太小气了！
 这也太可爱了😇
 
 
------
+*****
 
 ####  honeybrain  
 ##### 17602#       发表于 2020-11-26 15:45
@@ -13251,7 +13251,7 @@ konami不多整几个，太小气了！
 mkt会员限多少同接啊，一般情况
 
 
------
+*****
 
 ####  Suny08  
 ##### 17603#       发表于 2020-11-26 15:52
@@ -13260,7 +13260,7 @@ mkt会员限多少同接啊，一般情况
 v综居然开始对西西发情了，太怪了
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17604#       发表于 2020-11-26 15:54
@@ -13269,7 +13269,7 @@ v综居然开始对西西发情了，太怪了
 头大比较适合这游戏人模 所以加急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 17605#       发表于 2020-11-26 16:08
@@ -13278,7 +13278,7 @@ v综居然开始对西西发情了，太怪了
 大福这还挺可爱的，真好啊能做进游戏里<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 17606#       发表于 2020-11-26 16:11
@@ -13287,7 +13287,7 @@ v综居然开始对西西发情了，太怪了
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然昨天凛仙贝下播前就说过了，今天凛仙贝B限接着播纸人
 
 
------
+*****
 
 ####  死体残留  
 ##### 17607#       发表于 2020-11-26 16:23
@@ -13296,7 +13296,7 @@ v综居然开始对西西发情了，太怪了
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">大福是收费dlc么
 
 
------
+*****
 
 ####  wety  
 ##### 17608#       发表于 2020-11-26 16:34
@@ -13305,7 +13305,7 @@ v综居然开始对西西发情了，太怪了
 前几天日南频道不是登录33333人，有多少会员？
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17609#       发表于 2020-11-26 16:40
@@ -13314,7 +13314,7 @@ v综居然开始对西西发情了，太怪了
 说到JP本土的熟练工，不论是生主还是底边小V，能被现在这个规模的虹杏看上并且还要凑够一期也就是虹杏各5张真的很难，门槛太高了。
 
 
------
+*****
 
 ####  死体残留  
 ##### 17610#       发表于 2020-11-26 16:55
@@ -13323,7 +13323,7 @@ v综居然开始对西西发情了，太怪了
 话说bls故障问题是不是被b装死装过了？当时不是说要求日方三天出报告的？
 
 
------
+*****
 
 ####  NBXX  
 ##### 17611#       发表于 2020-11-26 16:56
@@ -13334,7 +13334,7 @@ https://www.anime-recorder.com/event/179684/
 <img src="https://i.loli.net/2020/11/26/qhKrek4YGZzApxJ.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  倒影_  
 ##### 17612#       发表于 2020-11-26 16:58
@@ -13346,7 +13346,7 @@ fantia频道33333人关注，具体多少人上了会员不知道
 nico频道的会员大概有8000+
 
 
------
+*****
 
 ####  lhawp  
 ##### 17613#       发表于 2020-11-26 17:04
@@ -13358,7 +13358,7 @@ https://www.anime-recorder.com/event/179684/
 露露和猫，🌈最后的遮羞布
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17614#       发表于 2020-11-26 17:12
@@ -13367,7 +13367,7 @@ https://www.anime-recorder.com/event/179684/
 怎么网右视频网站用户也这么喜欢看反日卖国社团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  味增味增  
 ##### 17615#       发表于 2020-11-26 17:12
@@ -13376,7 +13376,7 @@ https://www.anime-recorder.com/event/179684/
 あんたはここでふゆと死ぬのよ是爱马仕sc的梗么
 
 
------
+*****
 
 ####  空集  
 ##### 17616#       发表于 2020-11-26 17:15
@@ -13405,7 +13405,7 @@ https://www.anime-recorder.com/event/179684/
 感想：  有资源是真的强大 就算只剩下没几个人也可以不断新模型 新主流进出 新live   ， 某社耗子尾汁
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17617#       发表于 2020-11-26 17:16
@@ -13414,7 +13414,7 @@ https://www.anime-recorder.com/event/179684/
 但是🌈在杏前面<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17618#       发表于 2020-11-26 17:16
@@ -13454,7 +13454,7 @@ https://www.anime-recorder.com/event/179684/
 不破凑可以啊，第一套新衣服就很有个人风格了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TRW  
 ##### 17619#       发表于 2020-11-26 17:17
@@ -13463,7 +13463,7 @@ https://www.anime-recorder.com/event/179684/
 去年兽娘2是第五，反日卖国也是流量嘛
 
 
------
+*****
 
 ####  εRemastered  
 ##### 17620#       发表于 2020-11-26 17:17
@@ -13494,7 +13494,7 @@ https://www.anime-recorder.com/event/179684/
 查看全部评分
 
 
------
+*****
 
 ####  Suny08  
 ##### 17621#       发表于 2020-11-26 17:18
@@ -13507,7 +13507,7 @@ https://www.anime-recorder.com/event/179684/
 现在可以下结论杏本土已经把虹橄榄了没问题吧
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17622#       发表于 2020-11-26 17:19
@@ -13516,7 +13516,7 @@ https://www.anime-recorder.com/event/179684/
 为什么舔洋人的公司反而胜过专注本土的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17623#       发表于 2020-11-26 17:24
@@ -13527,7 +13527,7 @@ https://www.anime-recorder.com/event/179684/
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  凯文夏特  
 ##### 17624#       发表于 2020-11-26 17:25
@@ -13536,7 +13536,7 @@ https://www.anime-recorder.com/event/179684/
 话说VShojo旗下的粉猫nyanners和melody会是holoEN的鲨皇gawr还有死神mori的竞争对手吗  粉猫也是快要金盾的大物了 目前90多万订阅
 
 
------
+*****
 
 ####  Vneet  
 ##### 17625#       发表于 2020-11-26 17:26
@@ -13552,7 +13552,7 @@ https://www.anime-recorder.com/event/179684/
 若果存在女主角没出走的世界线，她还有sololive嘛_(:з」∠)_
 
 
------
+*****
 
 ####  死体残留  
 ##### 17626#       发表于 2020-11-26 17:28
@@ -13562,7 +13562,7 @@ https://www.anime-recorder.com/event/179684/
 入选多证明箱推厉害吧
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17627#       发表于 2020-11-26 17:29
@@ -13571,7 +13571,7 @@ https://www.anime-recorder.com/event/179684/
 现在进虹还有啥门槛，t台随便抓5个就能上了，所以你虹到底什么时候抽卡啊。
 
 
------
+*****
 
 ####  opersuper  
 ##### 17628#       发表于 2020-11-26 17:29
@@ -13580,7 +13580,7 @@ https://www.anime-recorder.com/event/179684/
 粉猫聪明点去投木口en二期然后本体脱皮去twicas播，其他洗洗睡吧
 
 
------
+*****
 
 ####  死体残留  
 ##### 17629#       发表于 2020-11-26 17:34
@@ -13589,7 +13589,7 @@ https://www.anime-recorder.com/event/179684/
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一山不容二虎，真进了二期是不是会打起来
 
 
------
+*****
 
 ####  倒影_  
 ##### 17630#       发表于 2020-11-26 17:37
@@ -13604,7 +13604,7 @@ https://www.anime-recorder.com/event/179684/
 这衣服像从杀戮都市里走出来的<img src="https://p.sda1.dev/0/cf099fba6aba5f7c048a2163c0bb60f5/17-36-30-030.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17631#       发表于 2020-11-26 17:39
@@ -13613,7 +13613,7 @@ https://www.anime-recorder.com/event/179684/
 能让鲨皇有压力才好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17632#       发表于 2020-11-26 17:43
@@ -13622,7 +13622,7 @@ https://www.anime-recorder.com/event/179684/
 吾有上将粉猫可斩鲨鱼
 
 
------
+*****
 
 ####  未熟串烧  
 ##### 17633#       发表于 2020-11-26 17:46
@@ -13639,7 +13639,7 @@ Black Lotus是加速世界的那个吗，怎么想也是同作者的SAO更能进
 原来是万智牌吗，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  絵生voice  
 ##### 17634#       发表于 2020-11-26 17:58
@@ -13649,7 +13649,7 @@ Black Lotus是加速世界的那个吗，怎么想也是同作者的SAO更能进
 https://youtu.be/YtXEelwocpk
 
 
------
+*****
 
 ####  獅白ぼたん  
 ##### 17635#       发表于 2020-11-26 17:59
@@ -13662,7 +13662,7 @@ https://youtu.be/YtXEelwocpk
 syl木口能驯服洋马学大家庭的财富密码吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vneet  
 ##### 17636#       发表于 2020-11-26 18:02
@@ -13671,7 +13671,7 @@ syl木口能驯服洋马学大家庭的财富密码吗<img src="https://static.s
 每次说到粉猫，我先想到的是hiiro，还都是英语的。
 
 
------
+*****
 
 ####  KaboomMirai  
 ##### 17637#       发表于 2020-11-26 18:08
@@ -13680,7 +13680,7 @@ syl木口能驯服洋马学大家庭的财富密码吗<img src="https://static.s
 <img src="https://i.loli.net/2020/11/26/RcxB2bpEZo6sQST.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17638#       发表于 2020-11-26 18:18
@@ -13694,7 +13694,7 @@ melody ghs和正常管人不是一条赛道了了我觉得没啥可论的....
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17639#       发表于 2020-11-26 18:21
@@ -13717,7 +13717,7 @@ majiko作词曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.
 果然还是人脉大法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17640#       发表于 2020-11-26 18:23
@@ -13728,7 +13728,7 @@ majiko作词曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.
 不过轮廓形不可信啦，野猫之前轮廓形还是海象（海狮？）
 
 
------
+*****
 
 ####  †バンシー†  
 ##### 17641#       发表于 2020-11-26 18:27
@@ -13740,7 +13740,7 @@ majiko作词曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.
 金主群提的情报是说利香有男人的……情人节所有人自闭一天
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17642#       发表于 2020-11-26 18:30
@@ -13757,7 +13757,7 @@ hiiro是粉猫，nyanner也是粉猫。
 hiiro的潜在对手有鲨书记，nyanner的潜在对手是鲨皇。
 
 
------
+*****
 
 ####  NBXX  
 ##### 17643#       发表于 2020-11-26 18:30
@@ -13769,7 +13769,7 @@ hiiro的潜在对手有鲨书记，nyanner的潜在对手是鲨皇。
 <img src="https://i.loli.net/2020/11/26/A5T2OJzBdxFpWEM.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  icecry  
 ##### 17644#       发表于 2020-11-26 18:44
@@ -13794,7 +13794,7 @@ https://t.co/ruv3DmgQNV?amp=1露露粉丝做的同人游戏（那个q版画师�
 查看全部评分
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17645#       发表于 2020-11-26 19:08
@@ -13806,7 +13806,7 @@ https://t.co/ruv3DmgQNV?amp=1露露粉丝做的同人游戏（那个q版画师�
 省一楼，不破那件剪影应该是整活
 
 
------
+*****
 
 ####  Vneet  
 ##### 17646#       发表于 2020-11-26 19:16
@@ -13822,7 +13822,7 @@ hiiro是粉猫，nyanner也是粉猫。
 hiiro会说汉语，hiiro赢了。_(:з」∠)_
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17647#       发表于 2020-11-26 19:17
@@ -13842,7 +13842,7 @@ hiiro会说汉语，hiiro赢了。_(:з」∠)_
 这啥玩意阿，要咋整阿，怎么比阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十四洲  
 ##### 17648#       发表于 2020-11-26 19:20
@@ -13851,7 +13851,7 @@ hiiro会说汉语，hiiro赢了。_(:з」∠)_
 叶12.1b限原神🤣
 
 
------
+*****
 
 ####  NBXX  
 ##### 17649#       发表于 2020-11-26 19:22
@@ -13893,7 +13893,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 查看全部评分
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17650#       发表于 2020-11-26 19:23
@@ -13902,7 +13902,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 叶是谁？
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17651#       发表于 2020-11-26 19:27
@@ -13914,7 +13914,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要这样，今天不都在打APEX么
 
 
------
+*****
 
 ####  katern  
 ##### 17652#       发表于 2020-11-26 19:28
@@ -13932,7 +13932,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 2020-11-26 19:28 上传
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17653#       发表于 2020-11-26 19:29
@@ -13941,7 +13941,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 节奏榜把nyanner去掉了但是留着melody，果然是你干的吧杏生活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 17654#       发表于 2020-11-26 19:33
@@ -13964,7 +13964,7 @@ s
 2020-11-26 19:35 上传
 
 
------
+*****
 
 ####  TRW  
 ##### 17655#       发表于 2020-11-26 19:35
@@ -13973,7 +13973,7 @@ s
 叶这个……好像是拿了原神工商，届到了？
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17656#       发表于 2020-11-26 19:36
@@ -13982,7 +13982,7 @@ s
 橄榄鲨皇<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17657#       发表于 2020-11-26 19:43
@@ -13995,7 +13995,7 @@ s
 下次还敢的样子<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 17658#       发表于 2020-11-26 19:58
@@ -14006,7 +14006,7 @@ s
 难道是粉猫En二期确定了么
 
 
------
+*****
 
 ####  喜闻乐见  
 ##### 17659#       发表于 2020-11-26 20:02
@@ -14017,7 +14017,7 @@ s
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1gl2tswp6lqj210h0ntqg1.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17660#       发表于 2020-11-26 20:07
@@ -14026,7 +14026,7 @@ s
 HH这是事故了？
 
 
------
+*****
 
 ####  Aminor  
 ##### 17661#       发表于 2020-11-26 20:10
@@ -14045,7 +14045,7 @@ HH这是事故了？
 这是在暗示届到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水原薰  
 ##### 17662#       发表于 2020-11-26 20:10
@@ -14056,7 +14056,7 @@ HH这是事故了？</blockquote>
 对HH来说，迟到才是常态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17663#       发表于 2020-11-26 20:12
@@ -14065,7 +14065,7 @@ HH这是事故了？</blockquote>
 然后…………另一位是………………将将将……梦追翔
 
 
------
+*****
 
 ####  黑之和  
 ##### 17664#       发表于 2020-11-26 20:20
@@ -14074,7 +14074,7 @@ HH这是事故了？</blockquote>
 mhy 暂时滴神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑之和  
 ##### 17665#       发表于 2020-11-26 20:21
@@ -14085,7 +14085,7 @@ mhy 暂时滴神<img src="https://static.saraba1st.com/image/smiley/face2017/072
 金憨憨要哭了喂
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17666#       发表于 2020-11-26 20:22
@@ -14096,7 +14096,7 @@ yeah————————！！！
 （说实话有点担心コロナ）
 
 
------
+*****
 
 ####  lhawp  
 ##### 17667#       发表于 2020-11-26 20:22
@@ -14111,7 +14111,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 一期生全员参加，没有gamers，坐等2000魔怔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  地精也是精  
 ##### 17668#       发表于 2020-11-26 20:25
@@ -14120,7 +14120,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 这要不是金憨憨不就搞笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17669#       发表于 2020-11-26 20:28
@@ -14140,7 +14140,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 2020-11-26 20:28 上传
 
 
------
+*****
 
 ####  dybang  
 ##### 17670#       发表于 2020-11-26 20:30
@@ -14149,7 +14149,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 工商这词是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17671#       发表于 2020-11-26 20:31
@@ -14161,7 +14161,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 半小时了……
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17672#       发表于 2020-11-26 20:34
@@ -14170,7 +14170,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 开了开了!
 
 
------
+*****
 
 ####  水原薰  
 ##### 17673#       发表于 2020-11-26 20:35
@@ -14181,7 +14181,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 反正HH迟到少则十几分钟，多则大半小时都是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17674#       发表于 2020-11-26 20:36
@@ -14190,7 +14190,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 其实我一直也想知道称呼广告/带货为工商的起源是什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 17675#       发表于 2020-11-26 20:37
@@ -14201,7 +14201,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  BonkoraKKK  
 ##### 17676#       发表于 2020-11-26 20:40
@@ -14212,7 +14212,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 想了想，好像的确是在参与V相关讨论之后才开始用这个词
 
 
------
+*****
 
 ####  admentus  
 ##### 17677#       发表于 2020-11-26 20:49
@@ -14240,7 +14240,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 2020-11-26 20:48 上传
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 17678#       发表于 2020-11-26 20:50
@@ -14249,7 +14249,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 以前看xo酱拌lol的时候，打广告就会用工商这么个说法了，起码17年
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17679#       发表于 2020-11-26 21:04
@@ -14258,7 +14258,7 @@ https://twitter.com/ume_design/status/1331900508324376577
 HH这无人机动捕摄像是啥迷技术，挠挠头。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17680#       发表于 2020-11-26 21:04
@@ -14272,7 +14272,7 @@ HH这无人机动捕摄像是啥迷技术，挠挠头。
 而且这么难的歌让松下和aya的差距显得更大了
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17681#       发表于 2020-11-26 21:06
@@ -14281,7 +14281,7 @@ HH这无人机动捕摄像是啥迷技术，挠挠头。
 又是红莲化，算了，hh唱的
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17682#       发表于 2020-11-26 21:06
@@ -14290,7 +14290,7 @@ HH这无人机动捕摄像是啥迷技术，挠挠头。
 听烂了，鬼灭之刃！！！！（咬牙切齿）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17683#       发表于 2020-11-26 21:06
@@ -14303,7 +14303,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 松下差aya真不是一点两点，不要是俺是肉体不错我就梁木了，之前nico町那个live嗯混忍不了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17684#       发表于 2020-11-26 21:07
@@ -14312,7 +14312,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 其实要说鬼灭之刃的话我觉得炎比红莲华好听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水原薰  
 ##### 17685#       发表于 2020-11-26 21:09
@@ -14323,7 +14323,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了</block
 感觉是倍率都调高了…都是十几万人气，现在和以前的弹幕密度真是差远了…
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17686#       发表于 2020-11-26 21:09
@@ -14332,7 +14332,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了</block
 台湾用工商这个词比较多
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17687#       发表于 2020-11-26 21:10
@@ -14345,7 +14345,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 松下好看呀( ^_^)／中和一下嘛
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17688#       发表于 2020-11-26 21:11
@@ -14357,7 +14357,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 不是吧半年之前差不多只有这三分之一不到，你要说y弹幕还不用遮挡的时间点的话，那确实差了很多
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17689#       发表于 2020-11-26 21:13
@@ -14366,7 +14366,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 才发现唯一指定虹女播了一个多小时了，定期对纸片男人发情都能3W棒是真的狠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17690#       发表于 2020-11-26 21:14
@@ -14375,7 +14375,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">金憨憨也很努力了，为什么受伤的只有金憨憨
 
 
------
+*****
 
 ####  水原薰  
 ##### 17691#       发表于 2020-11-26 21:14
@@ -14386,7 +14386,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 我是说之前的时候，不过那是挺早以前了，最近大半年基本都是去404看的，这次阿b有转就直接在阿b看了，hh双推应该挺久没有十几万人气了吧，现在的弹幕密度比以前那种十几万还是差了点
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17692#       发表于 2020-11-26 21:15
@@ -14395,7 +14395,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 我爱丽丝不配拿个工商？
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17693#       发表于 2020-11-26 21:16
@@ -14404,7 +14404,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 扭曲仙境抽卡3万棒，甚至连自己的live2d都懒得放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17694#       发表于 2020-11-26 21:17
@@ -14413,7 +14413,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 这首是现场伴奏了
 
 
------
+*****
 
 ####  ygysh0505  
 ##### 17695#       发表于 2020-11-26 21:17
@@ -14424,7 +14424,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17696#       发表于 2020-11-26 21:18
@@ -14433,7 +14433,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">江皇真是老当益壮，宝刀未老，她到底何时才能全面复活。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17697#       发表于 2020-11-26 21:19
@@ -14442,7 +14442,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 江皇是皇女派的，虽然算不进天皇直系，到底也不会对天皇不利的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17698#       发表于 2020-11-26 21:21
@@ -14451,7 +14451,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 我刚点进去1.7w，现在都2.8w了，是真牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17699#       发表于 2020-11-26 21:27
@@ -14460,7 +14460,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 嘻嘻，这两张卡郡郡老早就抽到了！难得胜过三姐一回！（开玩笑）
 
 
------
+*****
 
 ####  拉格朗日乘数法  
 ##### 17700#       发表于 2020-11-26 21:28
@@ -14469,7 +14469,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 野良猫被运营关在会社直播抄般若波罗蜜多心经<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">管管ichikara，救救野良猫
 
 
------
+*****
 
 ####  豆芽123  
 ##### 17701#       发表于 2020-11-26 21:28
@@ -14478,7 +14478,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 彩虹的阿b官号又把那动态删了，憨憨怕不是凉了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17702#       发表于 2020-11-26 21:33
@@ -14487,7 +14487,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 三姐是被二姐80警告之后才这么摸的，，彩虹社侧福晋只能由猴来担任！
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17703#       发表于 2020-11-26 21:34
@@ -14496,7 +14496,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 还有这种好事？！
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17704#       发表于 2020-11-26 21:34
@@ -14505,7 +14505,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 丰州<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pliee  
 ##### 17705#       发表于 2020-11-26 21:34
@@ -14514,7 +14514,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 线下live真的能开吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  free  
 ##### 17706#       发表于 2020-11-26 21:34
@@ -14523,7 +14523,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 好！！！
 
 
------
+*****
 
 ####  YODOboi  
 ##### 17707#       发表于 2020-11-26 21:34
@@ -14536,7 +14536,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 啊不是，但无论如何明年是去不了的<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17708#       发表于 2020-11-26 21:35
@@ -14545,7 +14545,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 2月7日，不过应该不是巡演而是单场。
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17709#       发表于 2020-11-26 21:35
@@ -14554,7 +14554,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 又是丰洲
 
 
------
+*****
 
 ####  lhawp  
 ##### 17710#       发表于 2020-11-26 21:35
@@ -14563,7 +14563,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 只求日本人防疫能给力点
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17711#       发表于 2020-11-26 21:38
@@ -14572,7 +14572,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 先担心十二月的某几位的线下演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  触手姬  
 ##### 17712#       发表于 2020-11-26 21:38
@@ -14581,7 +14581,7 @@ HH的B人气好像也回暖了，之前明显弹幕流速被y那边爆了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给啥力，日本人只会当病毒不存在
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17713#       发表于 2020-11-26 21:41
@@ -14621,7 +14621,7 @@ bilibili
 <strong>“调整中”</strong>
 
 
------
+*****
 
 ####  dasfasf  
 ##### 17714#       发表于 2020-11-26 21:41
@@ -14630,7 +14630,7 @@ bilibili
 只能说相信田中工务店吧，田中音乐堂的时候好像日本都还没重视疫情，hh的stf就已经让人戴口罩测体温才能进场了了
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17715#       发表于 2020-11-26 21:42
@@ -14639,7 +14639,7 @@ bilibili
 叔叔抓紧时间拿下啊
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17716#       发表于 2020-11-26 21:43
@@ -14648,7 +14648,7 @@ bilibili
 日本今天已经宣布绝体绝命三周间了，先担心下床女士吧
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17717#       发表于 2020-11-26 21:46
@@ -14660,7 +14660,7 @@ bilibili
 明年fes，，就有好戏看了
 
 
------
+*****
 
 ####  free  
 ##### 17718#       发表于 2020-11-26 21:48
@@ -14669,7 +14669,7 @@ bilibili
 只要B站能搞定不静音，我就尊称叔叔一个月睿总
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17719#       发表于 2020-11-26 21:51
@@ -14678,7 +14678,7 @@ bilibili
 松下你啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17720#       发表于 2020-11-26 21:53
@@ -14698,7 +14698,7 @@ bilibili
 2020-11-26 21:56 上传
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17721#       发表于 2020-11-26 21:56
@@ -14707,7 +14707,7 @@ bilibili
 啊，HH这个原来是one man live，包丰州空场牛逼，中岛哥哥 is god！
 
 
------
+*****
 
 ####  dasfasf  
 ##### 17722#       发表于 2020-11-26 21:57
@@ -14716,7 +14716,7 @@ bilibili
 说了可以永远相信田中工务店
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17723#       发表于 2020-11-26 22:00
@@ -14725,7 +14725,7 @@ bilibili
 火鸡原创曲开了
 
 
------
+*****
 
 ####  admentus  
 ##### 17724#       发表于 2020-11-26 22:03
@@ -14734,7 +14734,7 @@ bilibili
 火鸡这唱得也太樱花妹了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17725#       发表于 2020-11-26 22:05
@@ -14749,7 +14749,7 @@ SYL：
 火鸡这声线都修成NANO.RIPE的きみコ了
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17726#       发表于 2020-11-26 22:06
@@ -14758,7 +14758,7 @@ SYL：
 mix得都听不出来原声了
 
 
------
+*****
 
 ####  空集  
 ##### 17727#       发表于 2020-11-26 22:14
@@ -14769,7 +14769,7 @@ mix得都听不出来原声了
 我的享受方法是第一次尝试和船长一块打 她疮终符我顺带通关  然后看她后两次尝试 实际上船本身的基础底力来说应该有L混关级别 很多时候失误还是要互动和聊天的注意力松懈的抱B 。第三次尝试最后已在节目效果控制范围内顺利通关了，然后她意犹未尽的接着开了把很快就撞完的ex和L，这个反应实际上也是非常真实的，令人想起自己很多年前的通关时的激动，这个游戏类型确实是这么好玩的。
 
 
------
+*****
 
 ####  admentus  
 ##### 17728#       发表于 2020-11-26 22:20
@@ -14797,7 +14797,7 @@ dinnerbone名牌+隐形药水整活，明天估计又要有好多切片了
 2020-11-26 22:20 上传
 
 
------
+*****
 
 ####  fromsaitama  
 ##### 17729#       发表于 2020-11-26 22:24
@@ -14806,7 +14806,7 @@ dinnerbone名牌+隐形药水整活，明天估计又要有好多切片了
 夸宝这还不到一万人 太拉垮了
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17730#       发表于 2020-11-26 22:27
@@ -14817,7 +14817,7 @@ pekomiko,不行！
 pekomoona,行！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17731#       发表于 2020-11-26 22:35
@@ -14828,7 +14828,7 @@ pekomoona,行！<img src="https://static.saraba1st.com/image/smiley/face2017/067
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  admentus  
 ##### 17732#       发表于 2020-11-26 22:38
@@ -14837,7 +14837,7 @@ pekomoona,行！<img src="https://static.saraba1st.com/image/smiley/face2017/067
 啊，被兔子夸了，以前也就只在雪皇那边听过妈妈式的夸奖，全肯定兔喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17733#       发表于 2020-11-26 22:40
@@ -14846,7 +14846,7 @@ pekomoona,行！<img src="https://static.saraba1st.com/image/smiley/face2017/067
 看见486今晚播的gta5，点进去一看存档飞了从头开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17734#       发表于 2020-11-26 22:40
@@ -14866,7 +14866,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 侦探：给JP分社一点面子不然我很难做人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17735#       发表于 2020-11-26 22:41
@@ -14875,7 +14875,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pansherry  
 ##### 17736#       发表于 2020-11-26 22:50
@@ -14886,7 +14886,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  空集  
 ##### 17737#       发表于 2020-11-26 22:54
@@ -14897,7 +14897,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17738#       发表于 2020-11-26 22:58
@@ -14908,7 +14908,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 明明当年第一次玩的时候念得那么标准，是谁改变了你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17739#       发表于 2020-11-26 23:06
@@ -14917,7 +14917,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 大亏现在是不是已经打不过余了？
 
 
------
+*****
 
 ####  admentus  
 ##### 17740#       发表于 2020-11-26 23:08
@@ -14934,7 +14934,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 你们日本人骨头能不能硬一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17741#       发表于 2020-11-26 23:10
@@ -14943,7 +14943,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 骨头硬的日本人上世纪中叶已经被做成焼き鳥了
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17742#       发表于 2020-11-26 23:15
@@ -14952,7 +14952,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 为什么白皮那么喜欢pekomoona，这就是年轻人的第一对cp吗，泪目了
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17743#       发表于 2020-11-26 23:17
@@ -14961,7 +14961,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 小蜜蜂和阿床可不可以翻唱一下夜永唄<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17744#       发表于 2020-11-26 23:27
@@ -14988,7 +14988,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 查看全部评分
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17745#       发表于 2020-11-26 23:33
@@ -15009,7 +15009,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 2020-11-26 23:33 上传
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17746#       发表于 2020-11-26 23:38
@@ -15026,7 +15026,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 本来准备听完小天使就去洗澡的浴霸都开好了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  †バンシー†  
 ##### 17747#       发表于 2020-11-26 23:42
@@ -15063,7 +15063,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 男友进门发现在直播悄悄关门就是了，干嘛多嘴说牙白啊
 
 
------
+*****
 
 ####  pansherry  
 ##### 17748#       发表于 2020-11-26 23:42
@@ -15079,7 +15079,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 —— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17749#       发表于 2020-11-26 23:50
@@ -15088,7 +15088,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 紫宝这个年纪有小男友多正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 17750#       发表于 2020-11-26 23:51
@@ -15099,7 +15099,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17751#       发表于 2020-11-26 23:52
@@ -15108,7 +15108,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 17752#       发表于 2020-11-26 23:53
@@ -15117,7 +15117,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">紫宝 要幸福啊
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17753#       发表于 2020-11-26 23:56
@@ -15126,7 +15126,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 独居之后去过紫宝家的都有谁<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17754#       发表于 2020-11-26 23:58
@@ -15137,7 +15137,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 大天使去过吧，怎么又是大天使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  藤宮はすみ  
 ##### 17755#       发表于 2020-11-26 23:58
@@ -15147,7 +15147,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ronso  
 ##### 17756#       发表于 2020-11-26 23:59
@@ -15156,7 +15156,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AKili  
 ##### 17757#       发表于 2020-11-26 23:59
@@ -15165,7 +15165,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pliee  
 ##### 17758#       发表于 2020-11-27 00:00
@@ -15174,7 +15174,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 紫宝安全措施要做好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -rm7-  
 ##### 17759#       发表于 2020-11-27 00:00
@@ -15184,7 +15184,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17760#       发表于 2020-11-27 00:01
@@ -15193,7 +15193,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 基德基德，crew要鲨人了
 
 
------
+*****
 
 ####  admentus  
 ##### 17761#       发表于 2020-11-27 00:02
@@ -15202,7 +15202,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 有机会双飞夸紫，酸了
 
 
------
+*****
 
 ####  bluebaby  
 ##### 17762#       发表于 2020-11-27 00:03
@@ -15211,7 +15211,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 别yy了，colo更新了，说是本人的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pliee  
 ##### 17763#       发表于 2020-11-27 00:03
@@ -15222,7 +15222,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 あれ、シオンです・・・怖いネ～</blockquote>
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17764#       发表于 2020-11-27 00:03
@@ -15231,7 +15231,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 紫宝：说出来你可能不信，是我自己的声音<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 17765#       发表于 2020-11-27 00:08
@@ -15240,7 +15240,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 哦？小千28日回归<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">是因为噗提那边吸引火力了么。
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17766#       发表于 2020-11-27 00:08
@@ -15249,7 +15249,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <blockquote>歌配信は恥ずかしいので切り抜かないでほしい</blockquote>
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 17767#       发表于 2020-11-27 00:09
@@ -15258,7 +15258,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 17768#       发表于 2020-11-27 00:11
@@ -15270,7 +15270,7 @@ so many watsons for #watsonparade but what about the rest of hololive! I want to
 几天没看管了 小熊猫又咋了
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17769#       发表于 2020-11-27 00:12
@@ -15282,7 +15282,7 @@ syl 4V那边似乎习惯叫火鸡店长来着，我杏星店长不要面子的�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17770#       发表于 2020-11-27 00:13
@@ -15291,7 +15291,7 @@ syl 4V那边似乎习惯叫火鸡店长来着，我杏星店长不要面子的�
 白皮死神火鸡CP粉那不是一般的魔怔，到时候炸了烟花绝对非常大。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17771#       发表于 2020-11-27 00:14
@@ -15305,7 +15305,7 @@ syl 4V那边似乎习惯叫火鸡店长来着， ...</blockquote>
 阿火唱歌歌词里有个あ～あ评论栏白皮都会集体刷a梗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17772#       发表于 2020-11-27 00:16
@@ -15314,7 +15314,7 @@ syl 4V那边似乎习惯叫火鸡店长来着， ...</blockquote>
 日本人不是不喜欢给人添麻烦吗， 为什么会刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17773#       发表于 2020-11-27 00:16
@@ -15323,7 +15323,7 @@ syl 4V那边似乎习惯叫火鸡店长来着， ...</blockquote>
 能不能把烂梗白皮都送进毒气室洗澡啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  admentus  
 ##### 17774#       发表于 2020-11-27 00:19
@@ -15335,7 +15335,7 @@ syl 4V那边似乎习惯叫火鸡店长来着， ...</blockquote>
 樱花妹自己都舔白皮爹，观众当然得一起来，不然不就是给自己推添麻烦了吗，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  目力干员leison  
 ##### 17775#       发表于 2020-11-27 00:21
@@ -15346,7 +15346,7 @@ syl 4V那边似乎习惯叫火鸡店长来着， ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 17776#       发表于 2020-11-27 00:27
@@ -15370,7 +15370,7 @@ nrk.jpg
 <img src="https://img.saraba1st.com/forum/202011/27/002802ie3i33e2bzc5iee3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  chobing  
 ##### 17777#       发表于 2020-11-27 00:28
@@ -15380,7 +15380,7 @@ nrk.jpg
 syl床刚唱的パレード有点好听，以前没听唱过
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17778#       发表于 2020-11-27 00:30
@@ -15389,7 +15389,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 然而这首夜に駆ける拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shenqi2552  
 ##### 17779#       发表于 2020-11-27 00:30
@@ -15400,7 +15400,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 看见这大角只想到三妹
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17780#       发表于 2020-11-27 00:31
@@ -15409,7 +15409,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 感觉最近练的还是有点效果，夜跑的高音比之前会限里好
 
 
------
+*****
 
 ####  shenqi2552  
 ##### 17781#       发表于 2020-11-27 00:31
@@ -15418,7 +15418,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 回错了……这
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17782#       发表于 2020-11-27 00:31
@@ -15427,7 +15427,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 拉还是拉了点
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17783#       发表于 2020-11-27 00:32
@@ -15436,7 +15436,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 小天使可是要唱20首呢……浴霸怕不是要过载<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  asdhai  
 ##### 17784#       发表于 2020-11-27 00:38
@@ -15445,7 +15445,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 错过了云戴紫宝绿帽的时机
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17785#       发表于 2020-11-27 00:41
@@ -15454,7 +15454,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 迪士尼还行，这档是不是要无了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17786#       发表于 2020-11-27 00:41
@@ -15463,7 +15463,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 反正没开sc<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17787#       发表于 2020-11-27 00:43
@@ -15472,7 +15472,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 上不去快把自己笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17788#       发表于 2020-11-27 00:43
@@ -15481,7 +15481,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 はい版権回避やったぜ
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17789#       发表于 2020-11-27 00:43
@@ -15490,7 +15490,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 我替迪斯尼把这个啊哈公主开除了
 
 
------
+*****
 
 ####  chobing  
 ##### 17790#       发表于 2020-11-27 00:44
@@ -15499,7 +15499,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 反正这首也没好好唱，切几个片好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17791#       发表于 2020-11-27 00:51
@@ -15508,7 +15508,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17792#       发表于 2020-11-27 00:51
@@ -15517,7 +15517,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 自己切了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  chobing  
 ##### 17793#       发表于 2020-11-27 00:52
@@ -15526,7 +15526,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 草，越不过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17794#       发表于 2020-11-27 00:55
@@ -15535,7 +15535,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 猴姆拉来了，可以
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17795#       发表于 2020-11-27 00:56
@@ -15544,7 +15544,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 这首强啊，难道是准备上live的？
 
 
------
+*****
 
 ####  chobing  
 ##### 17796#       发表于 2020-11-27 00:57
@@ -15555,7 +15555,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 [https://b23.tv/ANVPAK](https://b23.tv/ANVPAK)
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17797#       发表于 2020-11-27 00:57
@@ -15564,7 +15564,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 记得是最近每天开嗓唱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17798#       发表于 2020-11-27 00:59
@@ -15573,7 +15573,7 @@ syl床刚唱的パレード有点好听，以前没听唱过
 感觉还是有点不太够，某些高音有点赶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 17799#       发表于 2020-11-27 01:02
@@ -15588,7 +15588,7 @@ https://b23.tv/gNvXRi
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17800#       发表于 2020-11-27 01:02
@@ -15599,7 +15599,7 @@ https://b23.tv/gNvXRi
 这首真的别有风味！好听得一比！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  WDDzzZ  
 ##### 17801#       发表于 2020-11-27 01:03
@@ -15610,7 +15610,7 @@ https://b23.tv/gNvXRi
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17802#       发表于 2020-11-27 01:03
@@ -15625,7 +15625,7 @@ https://b23.tv/ANVPAK</blockquote>
 这个是油管存货重投
 
 
------
+*****
 
 ####  walfeds  
 ##### 17803#       发表于 2020-11-27 01:04
@@ -15634,7 +15634,7 @@ https://b23.tv/ANVPAK</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是把油管上恐山那首搬过来了，也好
 
 
------
+*****
 
 ####  chobing  
 ##### 17804#       发表于 2020-11-27 01:05
@@ -15643,7 +15643,7 @@ https://b23.tv/ANVPAK</blockquote>
 也好，号动了就行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17805#       发表于 2020-11-27 01:07
@@ -15654,7 +15654,7 @@ https://b23.tv/ANVPAK</blockquote>
 有共鸣真的可以为所欲为<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 17806#       发表于 2020-11-27 01:08
@@ -15663,7 +15663,7 @@ https://b23.tv/ANVPAK</blockquote>
 月灵动了我就睡不着了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17807#       发表于 2020-11-27 01:10
@@ -15677,7 +15677,7 @@ https://b23.tv/ANVPAK</blockquote>
 syl，inui也来00R了。。。
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17808#       发表于 2020-11-27 01:10
@@ -15686,7 +15686,7 @@ syl，inui也来00R了。。。
 想去推特放彩虹屁！月灵姐姐快发个推吧！
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17809#       发表于 2020-11-27 01:11
@@ -15695,7 +15695,7 @@ syl，inui也来00R了。。。
 OOR啊……选了首不要吼的慢歌
 
 
------
+*****
 
 ####  chobing  
 ##### 17810#       发表于 2020-11-27 01:11
@@ -15704,7 +15704,7 @@ OOR啊……选了首不要吼的慢歌
 忽悠成功一转耐久？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 17811#       发表于 2020-11-27 01:12
@@ -15730,7 +15730,7 @@ OOR啊……选了首不要吼的慢歌
 查看全部评分
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17812#       发表于 2020-11-27 01:13
@@ -15739,7 +15739,7 @@ OOR啊……选了首不要吼的慢歌
 灵儿姐发了推了，你们快去<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ひびき  
 ##### 17813#       发表于 2020-11-27 01:13
@@ -15753,7 +15753,7 @@ OOR啊……选了首不要吼的慢歌
 啥例子<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17814#       发表于 2020-11-27 01:15
@@ -15762,7 +15762,7 @@ OOR啊……选了首不要吼的慢歌
 这就是很快就会结束的歌回吗，爱了
 
 
------
+*****
 
 ####  caupollen  
 ##### 17815#       发表于 2020-11-27 01:18
@@ -15771,7 +15771,7 @@ OOR啊……选了首不要吼的慢歌
 280人在听 深夜歌会
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17816#       发表于 2020-11-27 01:18
@@ -15780,7 +15780,7 @@ OOR啊……选了首不要吼的慢歌
 老歌好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  奥尔斯蒂德  
 ##### 17817#       发表于 2020-11-27 01:19
@@ -15789,7 +15789,7 @@ OOR啊……选了首不要吼的慢歌
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">灵儿姐姐
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17818#       发表于 2020-11-27 01:19
@@ -15798,7 +15798,7 @@ OOR啊……选了首不要吼的慢歌
 inui今晚感觉心情不错啊
 
 
------
+*****
 
 ####  人別離苦  
 ##### 17819#       发表于 2020-11-27 01:23
@@ -15807,7 +15807,7 @@ inui今晚感觉心情不错啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ひびき  
 ##### 17820#       发表于 2020-11-27 01:23
@@ -15816,7 +15816,7 @@ inui今晚感觉心情不错啊
 为啥有人觉得是新录的，听出幻觉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 我听着明明和老版一模一样啊
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17821#       发表于 2020-11-27 01:25
@@ -15830,7 +15830,7 @@ inui今晚感觉心情不错啊
 选曲好棒惹
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 17822#       发表于 2020-11-27 01:25
@@ -15845,7 +15845,7 @@ inui今晚感觉心情不错啊
 省一楼，是快歌了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17823#       发表于 2020-11-27 01:26
@@ -15857,7 +15857,7 @@ inui今晚感觉心情不错啊
 唱歌好听的女人都是骗子
 
 
------
+*****
 
 ####  CielChloe  
 ##### 17824#       发表于 2020-11-27 01:32
@@ -15866,7 +15866,7 @@ inui今晚感觉心情不错啊
 bsyl，深夜テンション
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17825#       发表于 2020-11-27 01:33
@@ -15875,7 +15875,7 @@ bsyl，深夜テンション
 小天使怎也还在唱，别拼了拼不过的。
 
 
------
+*****
 
 ####  我在拉我  
 ##### 17826#       发表于 2020-11-27 01:36
@@ -15884,7 +15884,7 @@ bsyl，深夜テンション
 虚空sc都来了，inui好起来了，虹好起来了！
 
 
------
+*****
 
 ####  Mafise  
 ##### 17827#       发表于 2020-11-27 01:38
@@ -15897,7 +15897,7 @@ bsyl，深夜テンション
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17828#       发表于 2020-11-27 01:43
@@ -15909,7 +15909,7 @@ bsyl，深夜テンション
 你虹的增长停滞明眼人看在眼里，
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17829#       发表于 2020-11-27 01:49
@@ -15930,7 +15930,7 @@ ZSYL：
 这首唱得这么エモ难道到时候也要上live
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17830#       发表于 2020-11-27 01:51
@@ -15942,7 +15942,7 @@ inui toko，不会在同一首歌上跌倒两次！好听好听！而且难得�
 不过这就意味着live上没这首了吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17831#       发表于 2020-11-27 01:52
@@ -15953,7 +15953,7 @@ BSYL：
 这是阿床史上最长歌回？
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17832#       发表于 2020-11-27 01:52
@@ -15962,7 +15962,7 @@ BSYL：
 我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  好德我基  
 ##### 17833#       发表于 2020-11-27 01:53
@@ -15971,7 +15971,7 @@ BSYL：
 阿床有啥可管不到的，本质还是有俩好同期。
 
 
------
+*****
 
 ####  chobing  
 ##### 17834#       发表于 2020-11-27 01:53
@@ -15980,7 +15980,7 @@ BSYL：
 35w了，要摸了吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CAserlumos  
 ##### 17835#       发表于 2020-11-27 01:58
@@ -15989,7 +15989,7 @@ BSYL：
 madamada
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 17836#       发表于 2020-11-27 02:05
@@ -16000,7 +16000,7 @@ madamada
 希望live能办成
 
 
------
+*****
 
 ####  Baroq  
 ##### 17837#       发表于 2020-11-27 02:09
@@ -16009,7 +16009,7 @@ madamada
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">会限有清唱三个多小时的
 
 
------
+*****
 
 ####  蒹葭公子  
 ##### 17838#       发表于 2020-11-27 02:10
@@ -16018,7 +16018,7 @@ madamada
 不就是免费传的那首？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17839#       发表于 2020-11-27 02:12
@@ -16032,7 +16032,7 @@ madamada
 syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https://www.bilibili.com/video/BV1R4411Y7SJ/)
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 17840#       发表于 2020-11-27 02:37
@@ -16081,7 +16081,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 2020-11-27 02:36 上传
 
 
------
+*****
 
 ####  uiuc  
 ##### 17841#       发表于 2020-11-27 05:53
@@ -16095,7 +16095,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 不过感觉兼职主播没有投入更多精力的打算的话自由度高也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 17842#       发表于 2020-11-27 07:45
@@ -16145,7 +16145,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 <img src="https://img.saraba1st.com/forum/202011/27/074532ymff02hvae4k8e1f.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17843#       发表于 2020-11-27 07:55
@@ -16157,7 +16157,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 谷歌翻译的看不懂 能略微介绍下么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17844#       发表于 2020-11-27 08:14
@@ -16166,7 +16166,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看了下葵皇直播下面的备注，原来桃铁官网上早就放出了桃铁动画投稿的支持计划，在油管上可以自由配信，虽然不能以盈利目的投稿，但是收益化不算进盈利目的。他杏就算能玩桃铁，也不等于和科乐美谈妥了，同时人都说了可以自由配信收益化，你杏这么长时间到底在向谁要什么？
 
 
------
+*****
 
 ####  獅白ぼたん  
 ##### 17845#       发表于 2020-11-27 08:27
@@ -16175,7 +16175,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 动画投稿不是生配信权限啊，再黙認ベース说不定就挖着坑等你跳呢
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 17846#       发表于 2020-11-27 08:29
@@ -16187,7 +16187,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 这第一个回复劝退看起来更阴阳点，翻了半天录像回个軽い気持ち怎么就炎上了
 
 
------
+*****
 
 ####  colodes  
 ##### 17847#       发表于 2020-11-27 08:32
@@ -16198,7 +16198,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 那个是「个人」投稿指南，公司法人需要另外申请，目前除彩虹外并没有明确取得版权的vtuber公司，之前774在概要栏写得是「根据公司政策直播」,合理猜测和任天堂一样当成限时个人势直播
 
 
------
+*****
 
 ####  ShuTk4O  
 ##### 17848#       发表于 2020-11-27 08:32
@@ -16209,7 +16209,7 @@ syl 也可以听听票友版[https://www.bilibili.com/video/BV1R4411Y7SJ/](https
 看错了。编辑掉……
 
 
------
+*****
 
 ####  colodes  
 ##### 17849#       发表于 2020-11-27 08:50
@@ -16243,7 +16243,7 @@ $ 抱歉，我随意写的东西被你读到了
 查看全部评分
 
 
------
+*****
 
 ####  Vneet  
 ##### 17850#       发表于 2020-11-27 08:53
@@ -16252,7 +16252,7 @@ $ 抱歉，我随意写的东西被你读到了
 早上起来发现节奏榜界面变动了，标头不再是一排公司社团而只保留虹杏点七了（钦定四大天王）。
 
 
------
+*****
 
 ####  caupollen  
 ##### 17851#       发表于 2020-11-27 08:59
@@ -16266,7 +16266,7 @@ $ 抱歉，我随意写的东西被你读到了
 syl 这么强推，所以什么时候商量好直播啊
 
 
------
+*****
 
 ####  Porsche  
 ##### 17852#       发表于 2020-11-27 09:00
@@ -16278,7 +16278,7 @@ $ 会限不读sc我就不打了，浪费钱
 如果是小熊猫本人在我面前说軽い気持ち　ね的话说不定我也跪倒了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TiHaru  
 ##### 17853#       发表于 2020-11-27 09:01
@@ -16287,7 +16287,7 @@ $ 会限不读sc我就不打了，浪费钱
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这放到哪个国内大物主播那去，这人都被粉丝冲烂了
 
 
------
+*****
 
 ####  smy20011  
 ##### 17854#       发表于 2020-11-27 09:01
@@ -16296,7 +16296,7 @@ $ 会限不读sc我就不打了，浪费钱
 侦探感恩节吃罐头全餐，你holo这么抠门么
 
 
------
+*****
 
 ####  Porsche  
 ##### 17855#       发表于 2020-11-27 09:04
@@ -16308,7 +16308,7 @@ $ 会限不读sc我就不打了，浪费钱
 国内acg圈全都是反过来当孙子，管人更不用说
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17856#       发表于 2020-11-27 09:12
@@ -16320,7 +16320,7 @@ $ 会限不读sc我就不打了，浪费钱
 罐头挺好吃的
 
 
------
+*****
 
 ####  theloved  
 ##### 17857#       发表于 2020-11-27 09:13
@@ -16329,7 +16329,7 @@ $ 会限不读sc我就不打了，浪费钱
 舔狗同根生，哪国都一样，别把正常观众和舔狗放到一起比较
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17858#       发表于 2020-11-27 09:14
@@ -16338,7 +16338,7 @@ $ 会限不读sc我就不打了，浪费钱
 恐山循环半个月了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ronso  
 ##### 17859#       发表于 2020-11-27 09:15
@@ -16347,7 +16347,7 @@ $ 会限不读sc我就不打了，浪费钱
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">昨天睡太早了没有第一时间赶到现场点赞，02姐姐真好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  katern  
 ##### 17860#       发表于 2020-11-27 09:17
@@ -16356,7 +16356,7 @@ $ 会限不读sc我就不打了，浪费钱
 早上起来一看，灵儿新视频1.6w播放 4200赞，这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17861#       发表于 2020-11-27 09:19
@@ -16368,7 +16368,7 @@ $ 会限不读sc我就不打了，浪费钱
 国内3 4点都200人 离谱 不知道是真的还是叔叔给的阴兵
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17862#       发表于 2020-11-27 09:29
@@ -16379,7 +16379,7 @@ $ 会限不读sc我就不打了，浪费钱
 200人应该没啥问题，那个三连数据比例和上次茉莉花基本如出一辙
 
 
------
+*****
 
 ####  S_koname  
 ##### 17863#       发表于 2020-11-27 09:30
@@ -16388,7 +16388,7 @@ $ 会限不读sc我就不打了，浪费钱
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">很合理，直播这周能否安排上
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17864#       发表于 2020-11-27 09:39
@@ -16400,7 +16400,7 @@ $ 会限不读sc我就不打了，浪费钱
 剧团12月初要开演 估计之前都没啥机会
 
 
------
+*****
 
 ####  Hemis  
 ##### 17865#       发表于 2020-11-27 09:40
@@ -16411,7 +16411,7 @@ $ 会限不读sc我就不打了，浪费钱
 接下来7天她要是不播也很正常
 
 
------
+*****
 
 ####  icecry  
 ##### 17866#       发表于 2020-11-27 09:45
@@ -16433,7 +16433,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 <img src="https://img.saraba1st.com/forum/202011/27/094455ueoqpnojkd5gzqtn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 17867#       发表于 2020-11-27 09:45
@@ -16446,7 +16446,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17868#       发表于 2020-11-27 09:46
@@ -16455,7 +16455,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，没注意看最开始的那行字，直接拉到收益化配信去了，谢谢colo哥指正。
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17869#       发表于 2020-11-27 09:48
@@ -16465,7 +16465,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 尽然能遇到军师同好
 
 
------
+*****
 
 ####  S_koname  
 ##### 17870#       发表于 2020-11-27 09:58
@@ -16474,7 +16474,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">但愿日本疫情别再乱来就行
 
 
------
+*****
 
 ####  Porsche  
 ##### 17871#       发表于 2020-11-27 10:04
@@ -16485,7 +16485,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 悬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近天天都是新高
 
 
------
+*****
 
 ####  yla  
 ##### 17872#       发表于 2020-11-27 10:06
@@ -16495,7 +16495,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">流石魔界美大生
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 17873#       发表于 2020-11-27 10:11
@@ -16504,7 +16504,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 说不定日本人民的想法是: "疫苗要来了， 开始浪!"<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17874#       发表于 2020-11-27 10:20
@@ -16513,7 +16513,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本这一直断断续续的还没大爆炸 也是不容易
 
 
------
+*****
 
 ####  十四洲  
 ##### 17875#       发表于 2020-11-27 10:26
@@ -16522,7 +16522,7 @@ Screenshot_2020-11-27-09-43-45-163_com.google.android.youtube.jpg
 BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 
 
------
+*****
 
 ####  yinoh  
 ##### 17876#       发表于 2020-11-27 10:53
@@ -16531,7 +16531,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 日本其实已经算炸了的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17877#       发表于 2020-11-27 11:05
@@ -16540,7 +16540,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">cover和某大游戏企业签订了版权合同，是科乐美吗？不是，是sega，看来樱花革命的工商多少还有点用。
 
 
------
+*****
 
 ####  死体残留  
 ##### 17878#       发表于 2020-11-27 11:06
@@ -16549,7 +16549,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">问下田中公务店是怎样收益的？感觉hh昨天那个live来算投入很多的吧，就靠卖bd应该回不了本也没接过工商，怎么活下来的
 
 
------
+*****
 
 ####  空集  
 ##### 17879#       发表于 2020-11-27 11:07
@@ -16558,7 +16558,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 经历漫长的 许多工商 和合作 ，总算正式和sega签了。。
 
 
------
+*****
 
 ####  admentus  
 ##### 17880#       发表于 2020-11-27 11:11
@@ -16567,7 +16567,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 火鸡赢麻了，公款追星联动一开始就野兔子形象全开
 
 
------
+*****
 
 ####  yinoh  
 ##### 17881#       发表于 2020-11-27 11:14
@@ -16576,7 +16576,7 @@ BV1oK4y1j7MK 西西棒球实装，语音略杂鱼但可爱☺
 SEGA现在把命运赌手游上了，街机业务全部出售，裁员六百多人。然而咱依旧不看好樱花革命<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17882#       发表于 2020-11-27 11:15
@@ -16585,7 +16585,7 @@ SEGA现在把命运赌手游上了，街机业务全部出售，裁员六百多�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">樱花革命算个锤子，sega靠它那个套初音ip的秘之音游还差不多。
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17883#       发表于 2020-11-27 11:16
@@ -16594,7 +16594,7 @@ SEGA现在把命运赌手游上了，街机业务全部出售，裁员六百多�
 SEGA 能看到holo播全战吗
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17884#       发表于 2020-11-27 11:17
@@ -16603,7 +16603,7 @@ SEGA 能看到holo播全战吗
 相信SE能做好手游怕是都比Sega靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 17885#       发表于 2020-11-27 11:19
@@ -16612,7 +16612,7 @@ SEGA 能看到holo播全战吗
 能看到holo播p6吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 17886#       发表于 2020-11-27 11:19
@@ -16621,7 +16621,7 @@ SEGA 能看到holo播全战吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">sega虹也签了，如龙也播不了结局…
 
 
------
+*****
 
 ####  yla  
 ##### 17887#       发表于 2020-11-27 11:21
@@ -16632,7 +16632,7 @@ SEGA 能看到holo播全战吗
 谁给的自信，CC和初音手游吗
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17888#       发表于 2020-11-27 11:23
@@ -16641,7 +16641,7 @@ SEGA 能看到holo播全战吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以科乐美的呢，能拿到吗，感觉拿到se的可能性都比科乐美大得多，毕竟se最近给了工商大单。。。。科乐美完全没什么联系的印象。
 
 
------
+*****
 
 ####  icecry  
 ##### 17889#       发表于 2020-11-27 11:23
@@ -16650,7 +16650,7 @@ SEGA 能看到holo播全战吗
 sega就算了吧，要提手游还是好几年前的cc，这公司没救了
 
 
------
+*****
 
 ####  Hemis  
 ##### 17890#       发表于 2020-11-27 11:30
@@ -16661,7 +16661,7 @@ sega就算了吧，要提手游还是好几年前的cc，这公司没救了
 segay能不能复刻一遍一起和CA被炎上啊
 
 
------
+*****
 
 ####  Suny08  
 ##### 17891#       发表于 2020-11-27 11:31
@@ -16670,7 +16670,7 @@ segay能不能复刻一遍一起和CA被炎上啊
 Persona系列一直不让播剧透的，严格的一逼
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17892#       发表于 2020-11-27 11:32
@@ -16682,7 +16682,7 @@ Persona系列一直不让播剧透的，严格的一逼
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  死体残留  
 ##### 17893#       发表于 2020-11-27 11:35
@@ -16692,7 +16692,7 @@ Persona系列一直不让播剧透的，严格的一逼
 sega旗下ip还挺多的，就是半死不活和对面科乐美差不多
 
 
------
+*****
 
 ####  aele  
 ##### 17894#       发表于 2020-11-27 11:41
@@ -16701,7 +16701,7 @@ sega旗下ip还挺多的，就是半死不活和对面科乐美差不多
 狗皇赢麻了
 
 
------
+*****
 
 ####  chobing  
 ##### 17895#       发表于 2020-11-27 11:54
@@ -16723,7 +16723,7 @@ sega旗下ip还挺多的，就是半死不活和对面科乐美差不多
 <img src="https://img.saraba1st.com/forum/202011/27/115221vlz3r3ifbxrzu5bi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plok201  
 ##### 17896#       发表于 2020-11-27 11:59
@@ -16732,7 +16732,7 @@ sega旗下ip还挺多的，就是半死不活和对面科乐美差不多
 sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，大概最后全是工商樱战手游了
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17897#       发表于 2020-11-27 12:01
@@ -16741,7 +16741,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  podball  
 ##### 17898#       发表于 2020-11-27 12:02
@@ -16750,7 +16750,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 卧槽！海牛！
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17899#       发表于 2020-11-27 12:12
@@ -16762,7 +16762,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 你们日本人能不能稍微硬一点不要这么卑微<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Tierrrrr  
 ##### 17900#       发表于 2020-11-27 12:16
@@ -16771,7 +16771,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 日本人内心：<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  獅白ぼたん  
 ##### 17901#       发表于 2020-11-27 12:26
@@ -16780,7 +16780,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 又是勾十字又是六芒星，日本人能不能好了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">6
 
 
------
+*****
 
 ####  Vneet  
 ##### 17902#       发表于 2020-11-27 12:27
@@ -16789,7 +16789,7 @@ sega真的没啥好播的，最有节目效果的剧情类全锁了后半段，�
 彩虹玩彩虹没疑问∠( ᐛ 」∠)_
 
 
------
+*****
 
 ####  死体残留  
 ##### 17903#       发表于 2020-11-27 12:31
@@ -16804,7 +16804,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 主流进出
 
 
------
+*****
 
 ####  北山玖公  
 ##### 17904#       发表于 2020-11-27 12:31
@@ -16838,7 +16838,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 查看全部评分
 
 
------
+*****
 
 ####  noHentai  
 ##### 17905#       发表于 2020-11-27 12:34
@@ -16881,7 +16881,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 查看全部评分
 
 
------
+*****
 
 ####  好德我基  
 ##### 17906#       发表于 2020-11-27 12:41
@@ -16890,7 +16890,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 喷了，凪白在直播打原神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Junchoon  
 ##### 17907#       发表于 2020-11-27 12:53
@@ -16899,7 +16899,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 现在的SEGA是真的废物，不，应该说是废物中的废物.......
 
 
------
+*****
 
 ####  TRW  
 ##### 17908#       发表于 2020-11-27 12:58
@@ -16928,7 +16928,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 查看全部评分
 
 
------
+*****
 
 ####  admentus  
 ##### 17909#       发表于 2020-11-27 13:01
@@ -16964,7 +16964,7 @@ https://www.fujitv.co.jp/fujitv/news/20201008.html
 查看全部评分
 
 
------
+*****
 
 ####  OldGlory  
 ##### 17910#       发表于 2020-11-27 13:13
@@ -16985,7 +16985,7 @@ Thank you for your continued support, and see you on their next live stream!
 《他改变了虹en》《他又改回去了》
 
 
------
+*****
 
 ####  pojjcc  
 ##### 17911#       发表于 2020-11-27 13:19
@@ -16994,7 +16994,7 @@ Thank you for your continued support, and see you on their next live stream!
 所以现在又没有虹EN了？
 
 
------
+*****
 
 ####  proxima  
 ##### 17912#       发表于 2020-11-27 13:24
@@ -17003,7 +17003,7 @@ Thank you for your continued support, and see you on their next live stream!
 懂了，快进到vshoujo变成nijisanji en
 
 
------
+*****
 
 ####  斯大林的拖拉机  
 ##### 17913#       发表于 2020-11-27 13:33
@@ -17012,7 +17012,7 @@ Thank you for your continued support, and see you on their next live stream!
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Suny08  
 ##### 17914#       发表于 2020-11-27 13:36
@@ -17021,7 +17021,7 @@ Thank you for your continued support, and see you on their next live stream!
 是准备正儿八经做虹en了还是彻底放弃en我暂且蒙古
 
 
------
+*****
 
 ####  smy20011  
 ##### 17915#       发表于 2020-11-27 13:36
@@ -17035,7 +17035,7 @@ Thank you for your continued support, and see you on their next live stream!
 moona：拿起斧子
 
 
------
+*****
 
 ####  caupollen  
 ##### 17916#       发表于 2020-11-27 13:56
@@ -17044,7 +17044,7 @@ moona：拿起斧子
 原来的3位咖喱味不够en，要纯真的欧美人守护最好的en<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 17917#       发表于 2020-11-27 14:00
@@ -17055,7 +17055,7 @@ moona：拿起斧子
 心疼noor
 
 
------
+*****
 
 ####  TRW  
 ##### 17918#       发表于 2020-11-27 14:05
@@ -17064,7 +17064,7 @@ moona：拿起斧子
 虹en如果还是抓素人抽奖必暴死，曝光度太低了，哪怕倒贴钱都该找个油管大物转生
 
 
------
+*****
 
 ####  死体残留  
 ##### 17919#       发表于 2020-11-27 14:12
@@ -17075,7 +17075,7 @@ moona：拿起斧子
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">奶下彩虹今年明年主攻国内，毕竟刚搞了个喂啊噗公司，伊藤忠投资都没发力呢
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17920#       发表于 2020-11-27 14:12
@@ -17084,7 +17084,7 @@ moona：拿起斧子
 草，点进凪白那里，他这涨到快400同接，还开着读弹幕的语音，吵死我了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wety  
 ##### 17921#       发表于 2020-11-27 14:15
@@ -17093,7 +17093,7 @@ moona：拿起斧子
 快进到彩虹苦心经营CN，反攻油管<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 17922#       发表于 2020-11-27 14:31
@@ -17102,7 +17102,7 @@ moona：拿起斧子
 看推上有人截图说，moona其实一直没有离开，喝了隐身药水一直跟着兔子火鸡，他截了直播图圈出了隐身药水的特效圈圈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  耻照  
 ##### 17923#       发表于 2020-11-27 14:36
@@ -17115,7 +17115,7 @@ moona：拿起斧子
 不对是不是之前已经给了，那我期待索尼也给一份然后暴怒老哥又能表演一次展台门口砸机器
 
 
------
+*****
 
 ####  age45  
 ##### 17924#       发表于 2020-11-27 14:37
@@ -17175,7 +17175,7 @@ moona：拿起斧子
 查看全部评分
 
 
------
+*****
 
 ####  walfeds  
 ##### 17925#       发表于 2020-11-27 14:37
@@ -17194,7 +17194,7 @@ moona：拿起斧子
 原来企鹅角川整的这个电竞女团已经出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上次在v综提的时候还没圣声音
 
 
------
+*****
 
 ####  walfeds  
 ##### 17926#       发表于 2020-11-27 14:45
@@ -17208,7 +17208,7 @@ moona：拿起斧子
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任又赢
 
 
------
+*****
 
 ####  admentus  
 ##### 17927#       发表于 2020-11-27 14:48
@@ -17217,7 +17217,7 @@ moona：拿起斧子
 小屁孩咩可爱
 
 
------
+*****
 
 ####  甜甜圈与棒棒糖  
 ##### 17928#       发表于 2020-11-27 14:53
@@ -17226,7 +17226,7 @@ moona：拿起斧子
 劲还挺大<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yla  
 ##### 17929#       发表于 2020-11-27 15:00
@@ -17237,7 +17237,7 @@ moona：拿起斧子
 阿B好像说好3天的调查报告也没见到
 
 
------
+*****
 
 ####  星の守  
 ##### 17930#       发表于 2020-11-27 15:03
@@ -17246,7 +17246,7 @@ moona：拿起斧子
 全抱回来了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NBXX  
 ##### 17931#       发表于 2020-11-27 15:07
@@ -17260,7 +17260,7 @@ moona：拿起斧子
 11.24熟/Live取消后很难过 把会场糖浆全抱回家的Mea(片尾附dlc)【神楽めあ】 https://b23.tv/0PSmxu
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17932#       发表于 2020-11-27 15:20
@@ -17269,7 +17269,7 @@ moona：拿起斧子
 上有尧舜之君，下有尧舜之民。
 
 
------
+*****
 
 ####  shanzihao  
 ##### 17933#       发表于 2020-11-27 15:21
@@ -17278,7 +17278,7 @@ moona：拿起斧子
 笑死，粉丝主播全偷阿B东西，阿B又要被喷还要赔钱
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17934#       发表于 2020-11-27 15:24
@@ -17287,7 +17287,7 @@ moona：拿起斧子
 看乐了 这种话说出来没问题吗
 
 
------
+*****
 
 ####  死体残留  
 ##### 17935#       发表于 2020-11-27 15:26
@@ -17296,7 +17296,7 @@ moona：拿起斧子
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">可以说一句什么v什么粉么
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 17936#       发表于 2020-11-27 15:26
@@ -17324,7 +17324,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 查看全部评分
 
 
------
+*****
 
 ####  空集  
 ##### 17937#       发表于 2020-11-27 15:28
@@ -17335,7 +17335,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 比如这个デストロイ号 
 
 
------
+*****
 
 ####  TiHaru  
 ##### 17938#       发表于 2020-11-27 15:29
@@ -17344,7 +17344,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">性质还是不一样，不会有人听就是了
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 17939#       发表于 2020-11-27 15:30
@@ -17353,7 +17353,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 七海怎么被冲了1000多回复，发生肾么事了
 
 
------
+*****
 
 ####  TRW  
 ##### 17940#       发表于 2020-11-27 15:32
@@ -17362,7 +17362,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">呜呜呜呜呜呜，都这么可怜了，干什么都是对的啦。一边吹交了最高档的个人所得税，一边顺手毛东西，这只是在陶冶情趣，谁看得上你阿b那几箱垃圾啊。
 
 
------
+*****
 
 ####  CheshireK  
 ##### 17941#       发表于 2020-11-27 15:33
@@ -17371,7 +17371,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 粉丝毛立牌，主播毛口罩，什么v什么粉很合理
 
 
------
+*****
 
 ####  Apes  
 ##### 17942#       发表于 2020-11-27 15:38
@@ -17380,7 +17380,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 七海？哪个七海？白头发的好像是亲自下场挂了一个直球anti结果被乐子人盯上了
 
 
------
+*****
 
 ####  S_koname  
 ##### 17943#       发表于 2020-11-27 15:40
@@ -17391,7 +17391,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 所以三字母的行为有人还觉得可爱？理解不能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fghc_h  
 ##### 17944#       发表于 2020-11-27 15:41
@@ -17404,7 +17404,7 @@ bls的话题软软冰在直播里说了很多，如果能找到录像可以直�
 syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被黑屁吗
 
 
------
+*****
 
 ####  Apes  
 ##### 17945#       发表于 2020-11-27 15:41
@@ -17413,7 +17413,7 @@ syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">____眼里出____
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17946#       发表于 2020-11-27 15:48
@@ -17428,7 +17428,7 @@ syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被
 另外按最近总体结论来说，就是日方公司不行，各方基调都是这样定的
 
 
------
+*****
 
 ####  S_koname  
 ##### 17947#       发表于 2020-11-27 15:52
@@ -17437,7 +17437,7 @@ syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被
 所以视频最后工作人员和三字母确认糖水全都搬回去了是在确认啥？怕三字母力气不够搬不回去吗
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17948#       发表于 2020-11-27 15:52
@@ -17446,7 +17446,7 @@ syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">“你尽管拿一两箱回去吧” “我就把那4箱全抱回来了”
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 17949#       发表于 2020-11-27 15:53
@@ -17455,7 +17455,7 @@ syl:这种充满mmr气息的东西就别搬来v综了，漏洞太多，为了被
 v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 17950#       发表于 2020-11-27 15:53
@@ -17464,7 +17464,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 有一说一单看上面截图里至少是工作人员说让拿才拿的，跟毛立牌性质还是不一样
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17951#       发表于 2020-11-27 15:53
@@ -17476,7 +17476,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 口罩就有点过了，这种卫生用品，不好，真的不好，起码也得打声招呼吧
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17952#       发表于 2020-11-27 15:54
@@ -17485,7 +17485,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综加油
 
 
------
+*****
 
 ####  yla  
 ##### 17953#       发表于 2020-11-27 15:55
@@ -17498,7 +17498,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 口罩就...
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17954#       发表于 2020-11-27 15:56
@@ -17515,7 +17515,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 在场不是一堆v 也让别人搬走点啊
 
 
------
+*****
 
 ####  icecry  
 ##### 17955#       发表于 2020-11-27 15:57
@@ -17527,7 +17527,7 @@ v综眼里出黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">再去看一眼直播间图又变了
 
 
------
+*****
 
 ####  TRW  
 ##### 17956#       发表于 2020-11-27 15:59
@@ -17543,7 +17543,7 @@ C:我证明，是B说要捐的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 17957#       发表于 2020-11-27 16:00
@@ -17552,7 +17552,7 @@ C:我证明，是B说要捐的
 有一说一，我觉得你们搁这辩有种辩论正当防卫还是防卫过当的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  theloved  
 ##### 17958#       发表于 2020-11-27 16:02
@@ -17563,7 +17563,7 @@ C:我证明，是B说要捐的
 粉丝那肯定是顺手牵羊，mea这是小事，还能上升到对不对？切片里说的那几个东西都是算在预算的，当然得要跟人说一声，
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17959#       发表于 2020-11-27 16:03
@@ -17572,7 +17572,7 @@ C:我证明，是B说要捐的
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">这不去v8
 
 
------
+*****
 
 ####  mr.dragon  
 ##### 17960#       发表于 2020-11-27 16:03
@@ -17588,7 +17588,7 @@ C:我证明，是B说要捐的
 真正的资本家不都是想办法在损失产生后转换成收益的嘛，东西拿走就换个批站大度的口碑呗。老实讲木口那种反复横跳的封建操作才是真的理解不能。你们说如果mea那走的事木口的物料他们会不会真上门要回来啊？
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17961#       发表于 2020-11-27 16:03
@@ -17597,7 +17597,7 @@ C:我证明，是B说要捐的
 y1s1，这两页有点V8的味
 
 
------
+*****
 
 ####  S_koname  
 ##### 17962#       发表于 2020-11-27 16:04
@@ -17606,7 +17606,7 @@ y1s1，这两页有点V8的味
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这还正当防卫呢？你看视频她都那样说了，潜意识都知道这样做不太好了。真当自己还是小孩子啊
 
 
------
+*****
 
 ####  老贝  
 ##### 17963#       发表于 2020-11-27 16:04
@@ -17615,7 +17615,7 @@ y1s1，这两页有点V8的味
 生活中确实遇到过那种跟你讲你拿两瓶饮料，结果把整箱饮料外加几包零食全搬走的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17964#       发表于 2020-11-27 16:07
@@ -17624,7 +17624,7 @@ y1s1，这两页有点V8的味
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">完全就是小屁孩
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17965#       发表于 2020-11-27 16:08
@@ -17635,7 +17635,7 @@ y1s1，这两页有点V8的味
 那各位圣人，每天在网上黑屁别人是不是也不对？
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17966#       发表于 2020-11-27 16:08
@@ -17644,7 +17644,7 @@ y1s1，这两页有点V8的味
 什V什粉，既然觉得很可爱那就当作是是夸奖吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  franklau  
 ##### 17967#       发表于 2020-11-27 16:09
@@ -17653,7 +17653,7 @@ y1s1，这两页有点V8的味
 373..373..我的373<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  proxima  
 ##### 17968#       发表于 2020-11-27 16:09
@@ -17664,7 +17664,7 @@ y1s1，这两页有点V8的味
 别以为我不知道都做进预算里面了，嘉宾不拿还不是stf自己毛回家了?
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17969#       发表于 2020-11-27 16:10
@@ -17677,7 +17677,7 @@ y1s1，这两页有点V8的味
 也没人说批站会追责啊，这点东西谁在乎啊，大事儿上批站都糊成啥了，单纯觉得她这个举动不大合适而已
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17970#       发表于 2020-11-27 16:10
@@ -17710,7 +17710,7 @@ y1s1，这两页有点V8的味
 查看全部评分
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 17971#       发表于 2020-11-27 16:11
@@ -17719,7 +17719,7 @@ y1s1，这两页有点V8的味
 "你们中间谁是没有罪的，谁就可以先拿石头打她。"
 
 
------
+*****
 
 ####  nevp  
 ##### 17972#       发表于 2020-11-27 16:12
@@ -17728,7 +17728,7 @@ y1s1，这两页有点V8的味
 真抓着这件事攻击就有点为黑而黑的意思了
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 17973#       发表于 2020-11-27 16:12
@@ -17742,7 +17742,7 @@ y1s1，这两页有点V8的味
 还有哈，这和现实里的辩论正当防卫防卫过当有啥区别呢，那就是某些人的立场屁股一看便知<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17974#       发表于 2020-11-27 16:12
@@ -17769,7 +17769,7 @@ y1s1，这两页有点V8的味
 查看全部评分
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17975#       发表于 2020-11-27 16:14
@@ -17780,7 +17780,7 @@ y1s1，这两页有点V8的味
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  フミさん  
 ##### 17976#       发表于 2020-11-27 16:14
@@ -17789,7 +17789,7 @@ y1s1，这两页有点V8的味
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">又开始了。。去隔壁绿帽坛月灵姐姐楼发麻将脸的兄弟们能不能回来重新把月神祝福带到V综啊，净化一下呗。
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17977#       发表于 2020-11-27 16:15
@@ -17798,7 +17798,7 @@ y1s1，这两页有点V8的味
 谈论mea建议去M综，有专楼的
 
 
------
+*****
 
 ####  敖轩  
 ##### 17978#       发表于 2020-11-27 16:16
@@ -17810,7 +17810,7 @@ y1s1，这两页有点V8的味
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  harry3  
 ##### 17979#       发表于 2020-11-27 16:16
@@ -17819,7 +17819,7 @@ y1s1，这两页有点V8的味
 毛立牌的不是起码有三个吗，剩下的几个也被开除天狗籍了？
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 17980#       发表于 2020-11-27 16:16
@@ -17828,7 +17828,7 @@ y1s1，这两页有点V8的味
 NGA又开始车免费了，哦，现在是小免？
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 17981#       发表于 2020-11-27 16:17
@@ -17854,7 +17854,7 @@ NGA又开始车免费了，哦，现在是小免？
 查看全部评分
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17982#       发表于 2020-11-27 16:18
@@ -17887,7 +17887,7 @@ NGA又开始车免费了，哦，现在是小免？
 查看全部评分
 
 
------
+*****
 
 ####  TRW  
 ##### 17983#       发表于 2020-11-27 16:18
@@ -17900,7 +17900,7 @@ NGA又开始车免费了，哦，现在是小免？
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">发小脾气毛点东西多可爱，v也是，粉也是
 
 
------
+*****
 
 ####  真田源次郎信繁  
 ##### 17984#       发表于 2020-11-27 16:19
@@ -17909,7 +17909,7 @@ NGA又开始车免费了，哦，现在是小免？
 爱丽丝都有人车，373这个也就这样了，V8已经疯了，但是最后也就这样了
 
 
------
+*****
 
 ####  kikiwalu  
 ##### 17985#       发表于 2020-11-27 16:19
@@ -17920,7 +17920,7 @@ NGA又开始车免费了，哦，现在是小免？
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  AloissiolA  
 ##### 17986#       发表于 2020-11-27 16:20
@@ -17932,7 +17932,7 @@ NGA又开始车免费了，哦，现在是小免？
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">叶师既不反华也不毛糖浆，甚至还舔单机游戏的国产之光
 
 
------
+*****
 
 ####  Aminor  
 ##### 17987#       发表于 2020-11-27 16:20
@@ -17941,7 +17941,7 @@ NGA又开始车免费了，哦，现在是小免？
 v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 17988#       发表于 2020-11-27 16:21
@@ -17953,7 +17953,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 是观众又不是舔狗，楼里其它人骂叶师有我多？<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 17989#       发表于 2020-11-27 16:22
@@ -17962,7 +17962,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 单机游戏就算了，原神充其量手机游戏
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 17990#       发表于 2020-11-27 16:22
@@ -17971,7 +17971,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到373我想问一下啊，看见nga有发373联动的烧酒照片，有人知道是什么牌子吗？
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17991#       发表于 2020-11-27 16:24
@@ -17982,7 +17982,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 看了下切片，大概确实是那种没有直球辱骂的勇气，只能悄眯恶作剧的心理？诶我说服了自己，好！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 17992#       发表于 2020-11-27 16:24
@@ -17991,7 +17991,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原神最近风评开始逆转了，好事啊
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17993#       发表于 2020-11-27 16:25
@@ -18003,7 +18003,7 @@ v吧首页挂着和bml的联动还去冲叔叔的人吗<img src="https://static.
 打得过茅台吗
 
 
------
+*****
 
 ####  三种人  
 ##### 17994#       发表于 2020-11-27 16:25
@@ -18030,7 +18030,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 查看全部评分
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 17995#       发表于 2020-11-27 16:25
@@ -18046,7 +18046,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 还敢说你们不是阿睿的孝子贤孙
 
 
------
+*****
 
 ####  flyskywalker92  
 ##### 17996#       发表于 2020-11-27 16:26
@@ -18055,7 +18055,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">倒是一堆人上人为了ps5的免费游戏礼包 psn账号封了
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 17997#       发表于 2020-11-27 16:27
@@ -18066,7 +18066,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 还没到晚上，黑暗巨魔看不到月神，无法蒙受艾露恩的祝福<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 17998#       发表于 2020-11-27 16:27
@@ -18075,7 +18075,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 资本入驻v圈，国v是不是要好起来了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 17999#       发表于 2020-11-27 16:27
@@ -18084,7 +18084,7 @@ syl，这就是新时代猫眼三姐妹吗，三酱一定不是那种住酒店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> V喜欢原神，那么他们的粉丝一定也很支持国产之光原神吧
 
 
------
+*****
 
 ####  pliee  
 ##### 18000#       发表于 2020-11-27 16:28
