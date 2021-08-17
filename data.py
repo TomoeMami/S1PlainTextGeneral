@@ -111,7 +111,7 @@ if __name__ == "__main__":
         stime = []
         reply = []
         replyer = []
-        for keyd in datadict.keys():
+        for keyd in sorted(datadict.keys()):
             c = keyd
             d = datadict[keyd]['num']
             e = len(datadict[keyd]['ids'].keys())
