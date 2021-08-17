@@ -22,7 +22,7 @@ jobs:
         pip install setuptools wheel twine pathlib pyecharts
     - name: DataGenerate
       run: |
-        python Data.py
+        python ./data.py
     # - name: commit
     #   env:
     #     TZ: 'CST-8'
