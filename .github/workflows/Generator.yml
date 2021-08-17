@@ -5,9 +5,6 @@ name: MakeGraph
 
 on: 
   push:
-  schedule:
-    # * is a special character in YAML so you have to quote this string
-    - cron:  '13 */1 * * *'  
 
 jobs:
   deploy:
@@ -23,9 +20,9 @@ jobs:
       run: |
         python -m pip install --upgrade pip
         pip install setuptools wheel twine pathlib pyecharts
-    - name: AutoEcharts
+    - name: DataGenerate
       run: |
-        python ./Data.py
+        python Data.py
     # - name: commit
     #   env:
     #     TZ: 'CST-8'
