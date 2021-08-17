@@ -11,26 +11,18 @@ import time
 rawpathdict = {
     'a' : {
         '1': './虚拟主播区专楼/虚拟主播【Asoul】/',
-        '2': './S1PlainTextBackup/虚拟主播区专楼/2019599[【A18】A-SOUL讨论楼（8月8日，20：00，乃琳生日会）]/'
     },
     'b' : {
-        '1': './S1PlainTextGeneral/虚拟主播区专楼/虚拟主播【B综】/',
-        '2': './S1PlainTextBackup/虚拟主播区专楼/2017705[【B32】VUP综合讨论楼]/'
-    },
-    'c' : {
-        '1': './S1PlainTextBackup/虚拟主播区专楼/1966145[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]/'
+        '1': './虚拟主播区专楼/虚拟主播【B综】/',
     },
     'h' : {
-       '1' : './S1PlainTextGeneral/虚拟主播区专楼/虚拟主播【H综】/',
-       'A': './S1PlainTextBackup/虚拟主播区专楼/2018062-01[再放送スレ].md'
+       '1' : './虚拟主播区专楼/虚拟主播【H综】/',
     },
     'm' : {
-        '1': './S1PlainTextGeneral/虚拟主播区专楼/虚拟主播【Mea楼】/',
-        'A': './S1PlainTextBackup/虚拟主播区专楼/2018830-01[【M14】神楽Mea(KaguraMea)讨论楼].md'
+        '1': './虚拟主播区专楼/虚拟主播【Mea楼】/',
     },
     'v' : {
-        '1': './S1PlainTextGeneral/虚拟主播区专楼/虚拟主播【V综】/',
-        '2': './S1PlainTextBackup/虚拟主播区专楼/1972669[【V14】虚拟YouTuber(vtuber)综合讨论楼]/'
+        '1': './虚拟主播区专楼/虚拟主播【V综】/',
     },
 }
 # apaths = ['./S1PlainTextGeneral/虚拟主播区专楼/虚拟主播【Asoul】/','./S1PlainTextBackup/虚拟主播区专楼/2019599[【A18】A-SOUL讨论楼（8月8日，20：00，乃琳生日会）]/']
@@ -76,7 +68,7 @@ if __name__ == "__main__":
                 for k in temppaths :
                     pathdict[key][str(count)] = k
                     count = count + 1
-            print(pathdict)
+    print(pathdict)
     #         for filepath in apath:
     #             with open (filepath, 'r',encoding='UTF-8') as f:
     #                 lines = f.readlines() 
