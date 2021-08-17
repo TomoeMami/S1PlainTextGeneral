@@ -12,17 +12,21 @@ jobs:
     steps:
     - name: CheckoutRepo
       uses: actions/checkout@v2
+
     - name: Set up Python
       uses: actions/setup-python@v2
       with:
         python-version: '3.x'
+
     - name: Install dependencies
       run: |
         python -m pip install --upgrade pip
-        pip install setuptools wheel twine pathlib pyecharts
+        pip install setuptools wheel twine pathlib
+
     - name: DataGenerate
       run: |
         python ./data.py
+
     - name: Pushes S1G folder
       uses: crykn/copy_folder_to_another_repo_action@v1.0.6
       env:

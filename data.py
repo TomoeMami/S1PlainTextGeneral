@@ -3,9 +3,6 @@ import re
 import json
 from pathlib import Path
 import os
-from pyecharts import options as opts
-from pyecharts.options.global_options import InitOpts, TitleOpts
-from pyecharts.charts import Line,Grid
 import time 
 
 def mkdir(path):
