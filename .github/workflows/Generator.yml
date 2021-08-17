@@ -31,6 +31,6 @@ jobs:
         source_folder: S1G
         destination_repo: TomoeMami/tomoemami.github.io
         destination_folder: S1G
-        user_email: trembleafterme@outlook.com
-        user_name: TomoeMami
+        user_email: 'trembleafterme@outlook.com'
+        user_name: 'TomoeMami'
         commit_msg: [GHA] Update the S1G files.
