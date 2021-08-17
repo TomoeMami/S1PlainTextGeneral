@@ -90,37 +90,39 @@ if __name__ == "__main__":
                 if(data['id']):
                     res.append(data)
             rawdata = rawdata + res
-
-
-        data = {}
-        for post in rawdata:
-            postintime = int(time.mktime(time.strptime(post['time'],"%Y-%m-%d %H:%M")))
-            if postintime%86400 :
-                postintime = postintime - postintime%86400
-            posttime = time.strftime("%Y-%m-%d", time.localtime(postintime))
-            if posttime not in data.keys():
-                data[posttime] = {}
-                data[posttime]['num'] = 1
-                data[posttime]['ids'] = {}
-            else:
-                data[posttime]['num'] = data[posttime]['num'] +1
-                data[posttime]['ids'][post['id']] = 1
-
-        datadict = data
-        data = []
-        stime = []
-        reply = []
-        replyer = []
-        for keyd in sorted(datadict.keys()):
-            c = keyd
-            d = datadict[keyd]['num']
-            e = len(datadict[keyd]['ids'].keys())
-            stime.append(c)
-            reply.append(d)
-            replyer.append(e)
-        data.append(stime)
-        data.append(reply)
-        data.append(replyer)
         mkdir('./S1G/')
-        with open('./S1G/'+key+'-Data.json', "w", encoding="utf-8") as f:
-            f.write(json.dumps(data,indent=2,ensure_ascii=False))
+        with open('./S1G/'+key+'-RawData.json', "w", encoding="utf-8") as f:
+            f.write(json.dumps(rawdata,indent=2,ensure_ascii=False))
+
+        # data = {}
+        # for post in rawdata:
+        #     postintime = int(time.mktime(time.strptime(post['time'],"%Y-%m-%d %H:%M")))
+        #     if postintime%86400 :
+        #         postintime = postintime - postintime%86400
+        #     posttime = time.strftime("%Y-%m-%d", time.localtime(postintime))
+        #     if posttime not in data.keys():
+        #         data[posttime] = {}
+        #         data[posttime]['num'] = 1
+        #         data[posttime]['ids'] = {}
+        #     else:
+        #         data[posttime]['num'] = data[posttime]['num'] +1
+        #         data[posttime]['ids'][post['id']] = 1
+
+        # datadict = data
+        # data = []
+        # stime = []
+        # reply = []
+        # replyer = []
+        # for keyd in sorted(datadict.keys()):
+        #     c = keyd
+        #     d = datadict[keyd]['num']
+        #     e = len(datadict[keyd]['ids'].keys())
+        #     stime.append(c)
+        #     reply.append(d)
+        #     replyer.append(e)
+        # data.append(stime)
+        # data.append(reply)
+        # data.append(replyer)
+        # mkdir('./S1G/')
+        # with open('./S1G/'+key+'-Data.json', "w", encoding="utf-8") as f:
+        #     f.write(json.dumps(data,indent=2,ensure_ascii=False))
