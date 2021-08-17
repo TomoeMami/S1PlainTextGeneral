@@ -68,7 +68,6 @@ if __name__ == "__main__":
                 for k in temppaths :
                     pathdict[key][str(count)] = k
                     count = count + 1
-    print(pathdict)
     #         for filepath in apath:
     #             with open (filepath, 'r',encoding='UTF-8') as f:
     #                 lines = f.readlines() 
