@@ -55,7 +55,6 @@ def getallfile(dirpath,allpath=[]):
 
 if __name__ == "__main__":
     pathdict = {}
-    print(Path.cwd())
     for key in rawpathdict.keys():
         count = 0
         for i in rawpathdict[key].keys():
@@ -68,15 +67,16 @@ if __name__ == "__main__":
                 for k in temppaths :
                     pathdict[key][str(count)] = k
                     count = count + 1
-    #         for filepath in apath:
-    #             with open (filepath, 'r',encoding='UTF-8') as f:
-    #                 lines = f.readlines() 
-    #                 a = ''
-    #                 for line in lines:
-    #                     a += line.strip()
-    #                     # a += line
+                    print(k)
+        # for filepath in apath:
+        #     with open (filepath, 'r',encoding='UTF-8') as f:
+        #         lines = f.readlines() 
+        #         a = ''
+        #         for line in lines:
+        #             a += line.strip()
+        #             # a += line
 
-    #             b = a.split("*****")
+        #     b = a.split("*****")
 
     #         res = []
     #         for post in b:
@@ -142,206 +142,3 @@ if __name__ == "__main__":
     # data.append(replyer)
     # with open('/home/riko/S1AllStars/V区专楼发言数量变迁/H-Data.json', "w", encoding="utf-8") as f:
     #     f.write(json.dumps(data,indent=2,ensure_ascii=False))
-
-
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/A-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     astime,areply,areplyer = j
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/B-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     bstime,breply,breplyer = j
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/C-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     cstime,creply,creplyer = j
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/H-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     hstime,hreply,hreplyer = j
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/M-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     mstime,mreply,mreplyer = j
-    # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/V-Data.json", "r", encoding="utf-8") as f:
-    #     j = json.load(f)
-    #     vstime,vreply,vreplyer = j
-    # for day in vstime:
-    #     if day not in astime:
-    #         areply.insert(0,0)
-    #         areplyer.insert(0,0)
-    #     if day not in bstime:
-    #         breply.insert(0,0)
-    #         breplyer.insert(0,0)
-    #     if day not in cstime:
-    #         creply.insert(0,0)
-    #         creplyer.insert(0,0)
-    #     if day not in mstime:
-    #         mreply.insert(0,0)
-    #         mreplyer.insert(0,0)
-    #     if day not in hstime:
-    #         hreply.insert(0,0)
-    #         hreplyer.insert(0,0)
-
-    # # timeline1 = astime + bstime + cstime + hstime + mstime + vstime
-    # # timeline = list(set(timeline1))
-    # # timeline.sort(key=timeline1.index)
-    # # init_opts=opts.InitOpts(width="1680px", height="800px",page_title="V区专楼日回帖数统计")
-    # l1 = (
-    # Line()
-    # .add_xaxis(xaxis_data=vstime)
-    # .add_yaxis(
-    #     series_name="A综",
-    #     y_axis=areply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    # .add_yaxis(
-    #     series_name="B综",
-    #     y_axis=breply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    # .add_yaxis(
-    #     series_name="C综",
-    #     y_axis=creply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    # .add_yaxis(
-    #     series_name="H综",
-    #     y_axis=hreply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    # .add_yaxis(
-    #     series_name="M综",
-    #     y_axis=mreply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    # .add_yaxis(
-    #     series_name="V综",
-    #     y_axis=vreply,
-    #     areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #     linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #     label_opts=opts.LabelOpts(is_show=False),
-    # )
-    #  .set_global_opts(
-    #     title_opts=opts.TitleOpts(
-    #         title="回帖数和回帖人数关系图", subtitle="以天为单位", pos_left="center"
-    #     ),
-    #     tooltip_opts=opts.TooltipOpts(trigger="axis"),
-    #     axispointer_opts=opts.AxisPointerOpts(
-    #         is_show=True, link=[{"xAxisIndex": "all"}]
-    #     ),
-    #     datazoom_opts=[
-    #         opts.DataZoomOpts(
-    #             is_show=True,
-    #             is_realtime=True,
-    #             start_value=30,
-    #             end_value=70,
-    #             xaxis_index=[0, 1],
-    #         )
-    #     ],
-    #     xaxis_opts=opts.AxisOpts(
-    #         type_="category",
-    #         boundary_gap=False,
-    #         axisline_opts=opts.AxisLineOpts(is_on_zero=True),
-    #     ),
-    #     yaxis_opts=opts.AxisOpts( name="回帖数"),
-    #     legend_opts=opts.LegendOpts(pos_left="left"),
-    #     toolbox_opts=opts.ToolboxOpts(
-    #         is_show=True,
-    #         feature={
-    #             "dataZoom": {"yAxisIndex": "none"},
-    #             "restore": {},
-    #             "saveAsImage": {},
-    #             },
-    #         ),
-    #     )
-    # )
-    # # with open("/home/riko/S1AllStars/V区专楼发言数量变迁/V-Data.json", "r", encoding="utf-8") as f:
-    # #     j = json.load(f)
-    # #     vstime,vreply,vreplyer = j
-    # # vstime2 = vstime
-    # l2=(
-    #     Line()
-    #     .add_xaxis(xaxis_data=vstime)
-    #     .add_yaxis(
-    #         series_name="A综",
-    #         y_axis=areplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .add_yaxis(
-    #         series_name="B综",
-    #         y_axis=breplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .add_yaxis(
-    #         series_name="C综",
-    #         y_axis=creplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .add_yaxis(
-    #         series_name="H综",
-    #         y_axis=hreplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .add_yaxis(
-    #         series_name="M综",
-    #         y_axis=mreplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .add_yaxis(
-    #         series_name="V综",
-    #         y_axis=vreplyer,
-    #         areastyle_opts=opts.AreaStyleOpts(opacity=0.3),
-    #         linestyle_opts=opts.LineStyleOpts(width=0.5),
-    #         label_opts=opts.LabelOpts(is_show=False),
-    #     )
-    #     .set_global_opts(
-    #         axispointer_opts=opts.AxisPointerOpts(
-    #             is_show=True, link=[{"xAxisIndex": "all"}]
-    #         ),
-    #         tooltip_opts=opts.TooltipOpts(trigger="axis"),
-    #         xaxis_opts=opts.AxisOpts(
-    #             grid_index=1,
-    #             type_="category",
-    #             boundary_gap=False,
-    #             axisline_opts=opts.AxisLineOpts(is_on_zero=True),
-    #             position="top",
-    #         ),
-    #         datazoom_opts=[
-    #             opts.DataZoomOpts(
-    #                 is_realtime=True,
-    #                 type_="inside",
-    #                 start_value=90,
-    #                 end_value=100,
-    #                 xaxis_index=[0, 1],
-    #             )
-    #         ],
-    #         yaxis_opts=opts.AxisOpts(is_inverse=True, name="回帖人数"),
-    #         legend_opts=opts.LegendOpts(pos_left="7%"),
-    #     )
-    # )
-    # (
-    #     Grid(init_opts=opts.InitOpts(width="1024px", height="768px"))
-    #     .add(chart=l1, grid_opts=opts.GridOpts(pos_left=50, pos_right=50, height="35%"))
-    #     .add(
-    #         chart=l2,
-    #         grid_opts=opts.GridOpts(pos_left=50, pos_right=50, pos_top="55%", height="35%"),
-    #     )
-    #     .render("index.html")
-    #     )   
