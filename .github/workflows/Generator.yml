@@ -23,6 +23,17 @@ jobs:
     - name: DataGenerate
       run: |
         python ./data.py
+    - name: Pushes S1G folder
+      uses: crykn/copy_folder_to_another_repo_action@v1.0.6
+      env:
+        API_TOKEN_GITHUB: ${{ secrets.API_TOKEN_GITHUB }}
+      with:
+        source_folder: 'S1G'
+        destination_repo: 'TomoeMami/tomoemami.github.io'
+        destination_folder: 'S1G'
+        user_email: 'trembleafterme@outlook.com'
+        user_name: 'TomoeMami'
+        commit_msg: '[GHA] Update the S1G files.'
     # - name: commit
     #   env:
     #     TZ: 'CST-8'
