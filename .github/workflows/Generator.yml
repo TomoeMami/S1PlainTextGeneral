@@ -28,26 +28,9 @@ jobs:
       env:
         API_TOKEN_GITHUB: ${{ secrets.API_TOKEN_GITHUB }}
       with:
-        source_folder: 'S1G'
-        destination_repo: 'TomoeMami/tomoemami.github.io'
-        destination_folder: 'S1G'
-        user_email: 'trembleafterme@outlook.com'
-        user_name: 'TomoeMami'
-        commit_msg: '[GHA] Update the S1G files.'
-    # - name: commit
-    #   env:
-    #     TZ: 'CST-8'
-    #   run: |
-    #     sudo timedatectl set-timezone Asia/Shanghai
-    #     git config --global user.email trembleafterme@outlook.com
-    #     git config --global user.name TomoeMami
-    #     datime=$(date "+%Y年%m月%d日 %H:%M")
-    #     echo "git commit: 上传于 $datime"
-    #     if [ -n "$(git status -s)" ];then
-    #         git add .
-    #         git commit -m "上传于 $datime" -a
-    #     fi
-    # - name: Push changes
-    #   uses: ad-m/github-push-action@master
-    #   with:
-    #     github_token: ${{ secrets.GITHUB_TOKEN }}
+        source_folder: S1G
+        destination_repo: TomoeMami/tomoemami.github.io
+        destination_folder: S1G
+        user_email: trembleafterme@outlook.com
+        user_name: TomoeMami
+        commit_msg: [GHA] Update the S1G files.
