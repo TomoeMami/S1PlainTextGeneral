@@ -33,4 +33,4 @@ jobs:
         destination_folder: S1G
         user_email: 'trembleafterme@outlook.com'
         user_name: 'TomoeMami'
-        commit_msg: [GHA] Update the S1G files.
+        commit_msg: '[GHA] Update the S1G files.'
