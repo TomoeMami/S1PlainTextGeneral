@@ -38,7 +38,6 @@ def find_time(file_path):
 
 def filter_time(troll,input_list):
     return_dict = dict(collections.Counter(input_list))
-    print(return_dict)
     for i in list(return_dict.keys()):
         if return_dict[i] < 45 or i not in date_list:
             return_dict.pop(i)
