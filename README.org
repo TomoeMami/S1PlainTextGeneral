@@ -1,13 +1,9 @@
 ** 简介
 
-本仓库用来存放S1跨越年限的高楼纯文本归档，以50楼为一份文件，不会再更新。
-
 及时更新的帖子内容参见：https://github.com/TomoeMami/S1PlainTextBackup
+2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
+2022年至今历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
 
 ** 全文搜索方式：
-网页栏里在github后面加上1s，变成github1s.com，按下回车即可在网页版vscode中打开本repo，然后在左侧边栏点击第二个图标，即可进入搜索界面。
 
-本仓库的搜索界面：https://github1s.com/TomoeMami/S1PlainTextGeneral
-*** 相关链接
-
-2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
+限制频率为20次每分钟的简易网页搜索：http://175.27.249.201:8000/
